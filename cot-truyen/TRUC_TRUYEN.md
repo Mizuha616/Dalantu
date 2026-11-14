@@ -3,7 +3,7 @@
 **Trạng thái:** Đề cương nguyên tắc, không phải bản thảo chương.
 
 ## Tiền đề đã chốt
-Tạ Cảnh Duy và Chu Tiểu Linh từng có hôn ước. Chu gia bị diệt môn khi nàng tám tuổi; nàng sống sót, được đưa vào Vô Danh Các, trải qua huấn luyện sát thủ, dịch dung và dùng thuốc che giấu danh tính. Cảnh Duy tin Tiểu Linh đã chết.
+Tạ Cảnh Duy và Chu Tiểu Linh từng có hôn ước. Chu gia bị diệt môn khi nàng tám tuổi: thế lực đứng sau cho rằng các quốc gia hoặc phe phái khác sẽ lợi dụng **năng lực quan sát bẩm sinh, luôn hoạt động và chỉ tồn tại khi người sở hữu còn sống** của đôi mắt Chu gia cho mục tiêu chính trị. Trong biến cố, có người Chu gia bị lấy mắt làm vật trang trí (những đôi mắt lấy khỏi người chết không giữ năng lực). Nàng sống sót, được đưa vào Vô Danh Các, trải qua huấn luyện sát thủ, dịch dung và dùng thuốc che giấu danh tính. Cảnh Duy tin Tiểu Linh đã chết.
 
 ## Mấu chốt tái ngộ đã chốt
 - Nàng hiện diện dưới danh xưng **Dạ Lan**.
