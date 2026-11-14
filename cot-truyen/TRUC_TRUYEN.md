@@ -5,6 +5,8 @@
 ## Tiền đề đã chốt
 Tạ Cảnh Duy và Chu Tiểu Linh từng có hôn ước. Chu gia bị diệt môn khi nàng tám tuổi: thế lực đứng sau cho rằng các quốc gia hoặc phe phái khác sẽ lợi dụng **năng lực quan sát bẩm sinh, luôn hoạt động và chỉ tồn tại khi người sở hữu còn sống** của đôi mắt Chu gia cho mục tiêu chính trị. Trong biến cố, có người Chu gia bị lấy mắt làm vật trang trí (những đôi mắt lấy khỏi người chết không giữ năng lực). Nàng sống sót, được đưa vào Vô Danh Các, trải qua huấn luyện sát thủ, dịch dung và dùng thuốc che giấu danh tính. Cảnh Duy tin Tiểu Linh đã chết.
 
+**Bối cảnh tổ chức đã chốt:** **Tạ Cảnh Duy (30 tuổi) là Vô Danh Các chủ**. Việc Chu Tiểu Linh được đưa vào tổ chức này không đồng nghĩa chàng biết nàng chính là người từng đính ước với mình; mức độ hiểu biết của chàng về quá khứ nàng chưa được xác định.
+
 ## Mấu chốt tái ngộ đã chốt
 - Nàng hiện diện dưới danh xưng **Dạ Lan**.
 - Nàng nhận ra chàng, nhưng không thể nói ra sự thật vì lời thề.
@@ -18,7 +20,7 @@ Tạ Cảnh Duy và Chu Tiểu Linh từng có hôn ước. Chu gia bị diệt 
 - Dạ Lan **suýt chết** trong nhiệm vụ.
 - **Giá y đỏ** là trang phục riêng của nhiệm vụ này. Ngoài tình tiết đó, Dạ Lan có thể mặc nhiều màu tùy nhiệm vụ, bao gồm **đỏ lựu**; **hai màu yêu thích nhất là tím nhạt màu khói và vàng nhạt**.
 - **Chưa xác định** diễn biến giao chiến, kết quả ám sát, thân phận thuộc hạ, người can thiệp, và vị trí tình tiết trong niên biểu.
-- Chi tiết trên là canon; **không tự gán Tạ Cảnh Duy vào vai cứu viện** hoặc tự cho nàng thành công/thất bại.
+- Chi tiết trên là canon; **không tự gán Tạ Cảnh Duy vào vai cứu viện** hoặc tự cho nàng thành công/thất bại. Phương án Duy ca ca tình cờ cứu Dạ Lan **mới là gợi ý đang bàn**, không phải canon; phải bảo toàn thiết lập **chàng là Vô Danh Các chủ**.
 
 ## Chưa chốt
 - Điểm mở đầu, mục tiêu bề mặt của từng nhân vật.
