@@ -3,16 +3,40 @@
 **Vai trò:** Nữ chính  
 **Tên thật:** Chu Tiểu Linh  
 **Danh xưng:** Dạ Lan  
-**Trạng thái:** Hồ sơ khởi tạo.
+**Trạng thái:** Đang xây dựng; những mục ghi ĐÃ CHỐT là canon.
 
 ## Đã chốt
 - Thuở nhỏ có hôn ước với **Tạ Cảnh Duy**.
 - **Năm 8 tuổi**, gia tộc nàng bị diệt môn.
-- Sau biến cố, nàng được đưa vào **Vô Danh Các**, được đào tạo thành sát thủ.
-- Nàng trải qua **dịch dung** và dùng **thuốc** để che giấu thân phận.
+- **Trong ngày diệt môn**, nàng bị **Dạ Hành**, sát thủ nhất đẳng của **Quy Nguyên Lâu**, bắt cóc. **Chưa rõ** người này muốn cứu nàng hay lợi dụng nàng.
+- Sau biến cố, nàng được đưa vào **Vô Danh Các** và chịu sự huấn luyện sát thủ cực kỳ khắc nghiệt. **Chưa chốt mối quan hệ giữa Vô Danh Các và Quy Nguyên Lâu**, cũng như ai trực tiếp phụ trách huấn luyện.
+- Nàng bị **ép uống thuốc và trải qua dịch dung thuật trong nhiều năm** để che giấu thân phận; chưa chốt thuốc và dịch dung làm thay đổi những gì cụ thể.
 - Khi tái ngộ, nàng **nhận ra Tạ Cảnh Duy**, nhưng chàng vẫn tin Tiểu Linh đã chết.
 - Nàng có lời thề **giấu thân phận đến chết**.
 - Nàng vẫn yêu chàng, nhưng chỉ mong chàng được hạnh phúc.
+
+## Ngoại hình và khí chất — ĐÃ CHỐT (15/11/2026)
+- **Chiều cao:** 1m65.
+- **Đôi tay:** Bàn tay với **những ngón tay thon nhỏ, trắng ngần**.
+- **Dung mạo:** **Đại mỹ nhân** có vẻ đẹp **lạnh và kiêu sa**, nhan sắc thu hút đến mức khiến người khác khó rời mắt.
+- **Hình tượng:** **Sát thủ trong ánh sáng**, cố ý đi ngược mô-típ sát thủ ẩn vào bóng tối; **thu phục nhân tâm bằng vẻ đẹp**, **giết người tru tâm**.
+
+### Y phục — ĐÃ CHỐT
+- **Tông chủ đạo:** Vàng sáng như nắng hoặc vàng nhạt như màu lông gà.
+- **Một số nhiệm vụ:** Có thể mặc **màu đỏ**.
+- Không tự quy định thêm kiểu dáng, chất liệu hay tông màu phụ khi chưa chốt.
+
+## Tính cách — ĐÃ CHỐT (15/11/2026)
+- **Dám làm dám nhận**.
+- **Yêu ghét phân minh**.
+- **Không sợ hoàng quyền**.
+- **Chung trinh**.
+- **Lạnh lùng, bí ẩn**.
+- **Nói ít làm nhiều**.
+- Thường có những câu nói **thâm sâu**, theo phong cách Linh Linh hay nói.
+- Khi hài hước thì **rất có duyên**.
+
+**Nguyên tắc nhất quán:** Không tự biến vẻ kiêu sa thành tính kiêu ngạo; không vì ít nói mà gán nàng vô cảm hoặc thiếu hài hước. Chỉ sử dụng đúng các nét tính cách đã được Linh Linh chốt.
 
 ## Ngoại hình — đôi mắt (ĐÃ CHỐT, 15/11/2026)
 - **Màu mắt chủ đạo:** Nâu thẫm, nhìn thoáng qua không thấy rõ sắc đỏ.
@@ -34,9 +58,9 @@
 Không mặc định việc chỉ nhìn một lần sẽ sao chép trọn vẹn võ công, không tự bổ sung chiêu thức, mức độ sức mạnh hay điểm yếu khi Linh Linh chưa duyệt.
 
 ## Chưa xác định
-- Chi tiết huyết án, người đưa nàng đến Vô Danh Các, nguyên nhân và điều kiện lời thề.
+- Danh tính thế lực đứng sau huyết án; **đã biết người bắt cóc là Dạ Hành**, nhưng chưa biết động cơ, hành trình sau khi bị bắt và ai đưa nàng đến Vô Danh Các; nguyên nhân và điều kiện lời thề.
 - Võ công, nhiệm vụ, địa vị trong Vô Danh Các.
-- Diện mạo trước/sau dịch dung; tác dụng cụ thể của thuốc.
+- Chi tiết thay đổi diện mạo trước/sau dịch dung; tác dụng cụ thể của thuốc và thời gian sử dụng.
 - Cách nàng xử lý xung đột giữa lời thề, nhiệm vụ và tình cảm.
 
 ## Lưu ý nhất quán
