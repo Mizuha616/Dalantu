@@ -23,8 +23,14 @@
 
 ### Y phục — ĐÃ CHỐT
 - **Tông chủ đạo:** Vàng sáng như nắng hoặc vàng nhạt như màu lông gà.
-- **Một số nhiệm vụ:** Có thể mặc **màu đỏ**.
+- **Ngoại lệ duy nhất đã được chốt:** Trong **một nhiệm vụ cụ thể của cốt truyện**, Dạ Lan mặc **giá y đỏ**, cải trang thành **tân nương tử của một tên tham quan**. Nàng đẹp đến mức **kinh diễm**. **Không** coi đỏ là màu y phục làm nhiệm vụ thường xuyên.
 - Không tự quy định thêm kiểu dáng, chất liệu hay tông màu phụ khi chưa chốt.
+
+### Nhiệm vụ giá y đỏ — ĐÃ CHỐT
+- Dạ Lan cải trang thành tân nương tử của một tên tham quan để thực hiện nhiệm vụ.
+- Khi hành thích tên tham quan, nàng **không ngờ hắn có một thuộc hạ mạnh ngang cơ mình**.
+- Cuộc đụng độ khiến Dạ Lan **suýt chết**.
+- Chưa chốt kết cục ám sát, số phận tên tham quan và thuộc hạ, ai cứu hoặc giúp nàng thoát hiểm, hay vị trí của sự kiện trong tuyến truyện.
 
 ## Tính cách — ĐÃ CHỐT (15/11/2026)
 - **Dám làm dám nhận**.
