@@ -5,7 +5,7 @@
 | Thời điểm | Sự kiện | Trạng thái |
 |---|---|---|
 | Thuở nhỏ, trước biến cố | Tạ Cảnh Duy và Chu Tiểu Linh có hôn ước | ĐÃ CHỐT |
-| Khi Chu Tiểu Linh 8 tuổi | Chu gia bị diệt môn | ĐÃ CHỐT |
+| Khi Chu Tiểu Linh 8 tuổi | Chu gia bị diệt môn **vì năng lực đôi mắt đặc biệt di truyền trong gia tộc** (chưa rõ thủ phạm) | ĐÃ CHỐT về nguyên nhân cốt lõi |
 | Sau biến cố | Tiểu Linh được đưa đến Vô Danh Các và đào tạo thành sát thủ | ĐÃ CHỐT |
 | Sau biến cố, chưa rõ mốc | Dịch dung và dùng thuốc che giấu thân phận | ĐÃ CHỐT về sự kiện, CHƯA XÁC ĐỊNH về thời điểm |
 | Khi tái ngộ | Dạ Lan nhận ra Cảnh Duy; Cảnh Duy chưa biết thân phận thật | ĐÃ CHỐT |
