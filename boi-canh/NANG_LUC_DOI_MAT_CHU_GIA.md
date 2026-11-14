@@ -9,6 +9,8 @@
 - Đây là **đặc điểm di truyền của Chu gia**, Chu Tiểu Linh đã có từ nhỏ.
 - Tạ Cảnh Duy từng nhìn thấy đôi mắt nàng thuở nhỏ.
 
+**Năng lực quan sát là bẩm sinh** ở người mang huyết thống và đặc điểm đôi mắt này; không phải năng lực chỉ có được nhờ rèn luyện. Chưa xác định liệu nó luôn hoạt động hay cần chủ động tập trung để sử dụng.
+
 ## Ba hướng năng lực đã được xác lập
 1. **“Nhìn qua đã thuộc”** — ghi nhớ thông tin bằng thị giác chỉ qua quan sát.
 2. **“Haki quan sát”** — cách so sánh của tác giả cho một dạng năng lực quan sát/nhận biết vượt trội; **không mặc định** áp dụng toàn bộ luật của bất kỳ tác phẩm khác.
@@ -18,10 +20,11 @@
 
 ## Vai trò cốt truyện — ĐÃ CHỐT
 - **Chu gia bị diệt môn vì năng lực của đôi mắt này** khi Chu Tiểu Linh tám tuổi.
+- Trong cuộc diệt môn, **có người trong tông tộc bị móc mắt và đôi mắt bị dùng làm vật trang trí**. Chưa chốt danh tính các nạn nhân, số lượng, thủ phạm hay mục đích cụ thể của hành vi này.
 - Sắc mắt là dấu hiệu huyết thống có thể giúp nhận diện nhưng cũng có thể khiến người khác chú ý; ai nhận ra và hậu quả cụ thể chưa chốt.
 
 ## Câu hỏi bỏ ngỏ
-- Năng lực kích hoạt tự nhiên hay cần luyện tập?
+- Năng lực là **bẩm sinh** (đã chốt); chưa rõ nó luôn hoạt động hay cần chủ động tập trung để phát huy.
 - Mức độ ghi nhớ: văn tự, hình ảnh, vận động, chiêu thức? Giới hạn ra sao?
 - “Haki quan sát” tương đồng ở những điểm chính xác nào?
 - Dấu hiệu biểu hiện khi dùng năng lực, mức hao tổn, điểm yếu?
