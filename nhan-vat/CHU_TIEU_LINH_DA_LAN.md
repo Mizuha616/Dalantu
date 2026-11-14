@@ -19,7 +19,9 @@
 - **Sắc độ đặc biệt:** Nếu nhìn lâu và thật kỹ, có thể nhận ra **sắc đỏ ẩn sâu trong phần tròng mắt tối**, tạo chiều sâu khác thường; không phải đôi mắt đỏ rực đồng nhất.
 - **Ấn tượng:** Vừa **nguy hiểm** vừa **thu hút**.
 - **Biểu cảm:** Khi nhìn lâu hoặc **nheo mắt**, ánh nhìn tạo cảm giác **lạnh**.
-- **Giới hạn thiết lập:** Chưa xác định nguồn gốc sắc đỏ, có liên quan dịch dung hay thuốc hay không; không tự gán năng lực hoặc cơ chế siêu nhiên.
+- **Nguồn gốc:** Đặc điểm đôi mắt này **di truyền trong Chu gia**, có từ khi Chu Tiểu Linh còn nhỏ; không phải do dịch dung hoặc thuốc tạo ra.
+- **Ký ức thuở nhỏ:** Tạ Cảnh Duy **đã từng nhìn thấy đôi mắt ấy** khi còn quen Chu Tiểu Linh. Việc anh có nhận ra ngay khi tái ngộ hay không vẫn theo diễn tiến đã chốt: ban đầu chưa nhận ra, về sau dần có cảm giác quen thuộc.
+- **Giới hạn thiết lập:** Không tự gán năng lực hoặc cơ chế siêu nhiên cho sắc mắt; chưa xác định những người cụ thể khác trong Chu gia mang đặc điểm này.
 
 ## Chưa xác định
 - Chi tiết huyết án, người đưa nàng đến Vô Danh Các, nguyên nhân và điều kiện lời thề.
