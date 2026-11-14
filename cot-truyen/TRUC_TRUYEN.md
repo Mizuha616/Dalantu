@@ -12,6 +12,14 @@ Tạ Cảnh Duy và Chu Tiểu Linh từng có hôn ước. Chu gia bị diệt 
 - Sự gần gũi và những quan sát, nhất là ánh mắt, có thể dần khiến chàng nghi ngờ.
 - Tình cảm của nàng vẫn còn, nhưng nàng mong chàng được hạnh phúc.
 
+## Tình tiết đã chốt: Nhiệm vụ giá y đỏ
+- **Một nhiệm vụ cụ thể**: Dạ Lan cải trang thành **tân nương tử** của **một tên tham quan**, mặc **bộ giá y đỏ** khiến nhan sắc nàng đẹp đến **kinh diễm**.
+- Khi hành thích tên tham quan, nàng không lường trước việc hắn có **một thuộc hạ thực lực ngang cơ Dạ Lan**.
+- Dạ Lan **suýt chết** trong nhiệm vụ.
+- Sắc đỏ **không phải** trang phục nhiệm vụ thường xuyên của nàng; tông chủ đạo vẫn là **vàng nắng và vàng nhạt**.
+- **Chưa xác định** diễn biến giao chiến, kết quả ám sát, thân phận thuộc hạ, người can thiệp, và vị trí tình tiết trong niên biểu.
+- Chi tiết trên là canon; **không tự gán Tạ Cảnh Duy vào vai cứu viện** hoặc tự cho nàng thành công/thất bại.
+
 ## Chưa chốt
 - Điểm mở đầu, mục tiêu bề mặt của từng nhân vật.
 - Xung đột chính trên giang hồ, phe đối địch.
