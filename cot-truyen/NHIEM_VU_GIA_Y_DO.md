@@ -10,8 +10,8 @@
 - Cuộc đụng độ đẩy Dạ Lan vào tình thế **suýt chết**.
 
 ## Ghi chú y phục
-- **Đây là trường hợp mặc đỏ đặc biệt trong cốt truyện**, không phải phong cách thường ngày hoặc màu nhiệm vụ thường dùng.
-- Màu thường gắn với Dạ Lan: **vàng nắng, vàng nhạt như lông gà**.
+- **Giá y đỏ** là một trang phục đặc biệt gắn với nhiệm vụ tân nương tử này; **không giới hạn** khả năng Dạ Lan mặc **đỏ lựu** ở những nhiệm vụ khác.
+- Dạ Lan **thích nhất tím nhạt màu khói và vàng nhạt**; bảng màu nàng có thể mặc theo nhiệm vụ còn gồm **vàng nắng, vàng kim, xanh lam thanh thiên, hồng phấn, đỏ lựu, bạch y và đen tuyền**.
 - Chưa chốt thiết kế chi tiết của giá y, trang sức, kiểu tóc cô dâu.
 
 ## Chưa chốt, không được tự bổ sung thành canon
