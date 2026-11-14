@@ -14,6 +14,13 @@
 - Nàng có lời thề **giấu thân phận đến chết**.
 - Nàng vẫn yêu chàng, nhưng chỉ mong chàng được hạnh phúc.
 
+## Ngoại hình — đôi mắt (ĐÃ CHỐT, 15/11/2026)
+- **Màu mắt chủ đạo:** Nâu thẫm, nhìn thoáng qua không thấy rõ sắc đỏ.
+- **Sắc độ đặc biệt:** Nếu nhìn lâu và thật kỹ, có thể nhận ra **sắc đỏ ẩn sâu trong phần tròng mắt tối**, tạo chiều sâu khác thường; không phải đôi mắt đỏ rực đồng nhất.
+- **Ấn tượng:** Vừa **nguy hiểm** vừa **thu hút**.
+- **Biểu cảm:** Khi nhìn lâu hoặc **nheo mắt**, ánh nhìn tạo cảm giác **lạnh**.
+- **Giới hạn thiết lập:** Chưa xác định nguồn gốc sắc đỏ, có liên quan dịch dung hay thuốc hay không; không tự gán năng lực hoặc cơ chế siêu nhiên.
+
 ## Chưa xác định
 - Chi tiết huyết án, người đưa nàng đến Vô Danh Các, nguyên nhân và điều kiện lời thề.
 - Võ công, nhiệm vụ, địa vị trong Vô Danh Các.
