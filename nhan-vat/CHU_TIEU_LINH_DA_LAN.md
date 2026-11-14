@@ -21,7 +21,16 @@
 - **Biểu cảm:** Khi nhìn lâu hoặc **nheo mắt**, ánh nhìn tạo cảm giác **lạnh**.
 - **Nguồn gốc:** Đặc điểm đôi mắt này **di truyền trong Chu gia**, có từ khi Chu Tiểu Linh còn nhỏ; không phải do dịch dung hoặc thuốc tạo ra.
 - **Ký ức thuở nhỏ:** Tạ Cảnh Duy **đã từng nhìn thấy đôi mắt ấy** khi còn quen Chu Tiểu Linh. Việc anh có nhận ra ngay khi tái ngộ hay không vẫn theo diễn tiến đã chốt: ban đầu chưa nhận ra, về sau dần có cảm giác quen thuộc.
-- **Giới hạn thiết lập:** Không tự gán năng lực hoặc cơ chế siêu nhiên cho sắc mắt; chưa xác định những người cụ thể khác trong Chu gia mang đặc điểm này.
+- **Năng lực huyết thống:** Đôi mắt này có năng lực đặc biệt được truyền trong Chu gia; chính năng lực ấy là nguyên nhân khiến gia tộc bị diệt môn.
+- **Giới hạn thiết lập:** Chưa xác định những người cụ thể khác trong Chu gia mang đặc điểm này, cơ chế di truyền, hay giới hạn khi sử dụng năng lực.
+
+## Năng lực của đôi mắt — ĐÃ CHỐT Ở MỨC Ý TƯỞNG
+- **Nhìn qua đã thuộc:** Khả năng ghi nhớ thông tin bằng thị giác sau khi quan sát.
+- **Tương tự Haki quan sát:** Năng lực quan sát và nhận biết nhạy bén khác thường. Đây là cách ví von về hướng sức mạnh; **chưa chốt** các cơ chế như nhìn trước tương lai, đọc ý nghĩ hay phạm vi cảm nhận.
+- **Trí thông minh thị giác:** Năng lực xử lý, phân tích và nhận thức thông tin qua hình ảnh ở mức vượt trội.
+- **Căn nguyên bi kịch Chu gia:** Gia tộc bị diệt môn **vì năng lực đôi mắt này**. Thủ phạm và động cơ cụ thể của họ vẫn chưa được xác định.
+
+Không mặc định việc chỉ nhìn một lần sẽ sao chép trọn vẹn võ công, không tự bổ sung chiêu thức, mức độ sức mạnh hay điểm yếu khi Linh Linh chưa duyệt.
 
 ## Chưa xác định
 - Chi tiết huyết án, người đưa nàng đến Vô Danh Các, nguyên nhân và điều kiện lời thề.
