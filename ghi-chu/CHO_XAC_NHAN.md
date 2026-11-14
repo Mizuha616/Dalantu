@@ -5,7 +5,8 @@
 - Tuổi hiện tại và tuổi khi hôn ước của Tạ Cảnh Duy?
 - Tuổi hiện tại của Dạ Lan khi tái ngộ?
 - Tên triều đại/quốc gia; thời gian, địa danh?
-- Chi tiết huyết án Chu gia, người đứng sau?
+- **Đã chốt:** Năng lực quan sát là bẩm sinh, luôn hoạt động và chỉ tồn tại khi người sở hữu còn sống; mắt của người đã chết không còn năng lực. Thế lực đứng sau diệt môn vì cho rằng các nước/phe phái khác có thể sử dụng năng lực này cho mục tiêu chính trị.
+- **Còn mở:** Danh tính thế lực đứng sau và người trực tiếp ra tay, căn cứ nhận định của chúng, địa điểm và diễn biến chi tiết huyết án?
 - Ai đưa nàng vào Vô Danh Các?
 - Đặc điểm của dịch dung và thuốc che giấu thân phận?
 - Lời thề được lập với ai, hậu quả nếu phá?
