@@ -9,7 +9,7 @@
 - Thuở nhỏ có hôn ước với **Tạ Cảnh Duy**.
 - **Năm 8 tuổi**, gia tộc nàng bị diệt môn.
 - **Trong ngày diệt môn**, nàng bị **Dạ Hành**, sát thủ nhất đẳng của **Quy Nguyên Lâu**, bắt cóc. **Chưa rõ** người này muốn cứu nàng hay lợi dụng nàng.
-- Sau biến cố, nàng được đưa vào **Vô Danh Các** và chịu sự huấn luyện sát thủ cực kỳ khắc nghiệt. **Chưa chốt mối quan hệ giữa Vô Danh Các và Quy Nguyên Lâu**, cũng như ai trực tiếp phụ trách huấn luyện.
+- Sau biến cố, nàng bị đưa vào quá trình huấn luyện sát thủ cực kỳ khắc nghiệt tại **Quy Nguyên Lâu**, tổ chức sát thủ mà nàng thuộc về. **Vô Danh Các là tổ chức mua bán tình báo của Tạ Cảnh Duy, không phải nơi huấn luyện nàng**. Chưa xác định ai trực tiếp phụ trách huấn luyện.
 - Nàng bị **ép uống thuốc và trải qua dịch dung thuật trong nhiều năm** để che giấu thân phận; chưa chốt thuốc và dịch dung làm thay đổi những gì cụ thể.
 - Khi tái ngộ, nàng **nhận ra Tạ Cảnh Duy**, nhưng chàng vẫn tin Tiểu Linh đã chết.
 - Nàng có lời thề **giấu thân phận đến chết**.
@@ -66,8 +66,8 @@
 Không mặc định việc chỉ nhìn một lần sẽ sao chép trọn vẹn võ công, không tự bổ sung chiêu thức, mức độ sức mạnh hay điểm yếu khi Linh Linh chưa duyệt.
 
 ## Chưa xác định
-- Danh tính thế lực đứng sau huyết án; **đã biết người bắt cóc là Dạ Hành**, nhưng chưa biết động cơ, hành trình sau khi bị bắt và ai đưa nàng đến Vô Danh Các; nguyên nhân và điều kiện lời thề.
-- Võ công, nhiệm vụ, địa vị trong Vô Danh Các.
+- Danh tính thế lực đứng sau huyết án; **đã biết người bắt cóc là Dạ Hành**, sát thủ nhất đẳng của Quy Nguyên Lâu, nhưng chưa biết động cơ thực sự, hành trình sau khi bị bắt và người ra lệnh huấn luyện nàng; nguyên nhân và điều kiện lời thề.
+- Võ công, nhiệm vụ, thứ bậc của nàng trong **Quy Nguyên Lâu**.
 - Chi tiết thay đổi diện mạo trước/sau dịch dung; tác dụng cụ thể của thuốc và thời gian sử dụng.
 - Cách nàng xử lý xung đột giữa lời thề, nhiệm vụ và tình cảm.
 

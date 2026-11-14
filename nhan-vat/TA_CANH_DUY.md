@@ -2,7 +2,7 @@
 
 **Vai trò:** Nam chính — *Dạ Lan Từ*  
 **Tuổi:** **30** — ĐÃ CHỐT  
-**Chức vị:** **Vô Danh Các chủ** — ĐÃ CHỐT  
+**Chức vị:** **Vô Danh Các chủ** — chủ nhân tổ chức thu thập, mua bán thông tin tình báo trong giang hồ — ĐÃ CHỐT  
 **Trạng thái:** Thiết lập ngoại hình được Linh Linh duyệt ngày 15/11/2026; các chi tiết khác theo trạng thái ghi bên dưới.
 
 ## Ngoại hình — ĐÃ CHỐT
@@ -47,7 +47,7 @@
 
 ## Danh xưng và cách gọi — ĐÃ CHỐT
 
-- **Tạ Cảnh Duy** là **Vô Danh Các chủ**.
+- **Tạ Cảnh Duy** là **Vô Danh Các chủ**: quản lý tổ chức **thu thập và mua bán thông tin tình báo trong giang hồ**, **không phải tổ chức sát thủ**.
 - **Chỉ Chu Tiểu Linh** gọi chàng là **“Duy ca ca”**; chàng gọi nàng là **“Linh Linh”**.
 - Danh xưng và chức vị không thay đổi nguyên tắc: tính cách của nhân vật giữ nguyên Nguyễn Duy, không tự thêm tính cách kiểu Các chủ.
 
@@ -63,8 +63,8 @@
 - Thân thế chi tiết, gia tộc, sư môn, thời điểm trở thành Các chủ và các chức phận khác (nếu có).
 - Tên kiếm, võ công, công pháp, các nhiệm vụ cụ thể và cơ cấu quyền hạn trong Vô Danh Các.
 - Tín vật, ngọc bội, mối quan hệ khác, chi tiết cuộc sống thường ngày.
-- Cách thức và thời điểm phát hiện chân tướng của Dạ Lan; chàng biết những gì về quá trình nàng được đưa đến Vô Danh Các.
-- Không tự chốt việc chàng cứu Dạ Lan trong nhiệm vụ giá y đỏ, hoặc việc chàng không biết nàng thuộc Vô Danh Các.
+- Cách thức và thời điểm phát hiện chân tướng của Dạ Lan; chàng biết được bao nhiêu về **Quy Nguyên Lâu**, nơi nàng được đào tạo thành sát thủ.
+- Không tự chốt việc chàng cứu Dạ Lan trong nhiệm vụ giá y đỏ, hoặc việc chàng có biết Dạ Lan thuộc **Quy Nguyên Lâu** hay không.
 
 **Không tự hoàn thiện các mục trên nếu chưa được Linh Linh chốt.**
 

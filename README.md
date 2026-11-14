@@ -19,6 +19,6 @@ Kho tư liệu chính thức dành riêng cho dự án truyện võ hiệp **D�
 - `quy-uoc/`: quy tắc nhất quán, trạng thái canon.
 
 ## Tóm tắt những điều đã có
-Tạ Cảnh Duy và Chu Tiểu Linh có hôn ước thuở nhỏ. Sau biến cố diệt môn khi nàng tám tuổi, Tiểu Linh lưu lạc vào Vô Danh Các, trở thành sát thủ mang danh Dạ Lan. Khi tái ngộ, nàng nhận ra chàng nhưng phải giấu thân phận; Cảnh Duy tin Tiểu Linh đã chết.
+Tạ Cảnh Duy và Chu Tiểu Linh có hôn ước thuở nhỏ. Sau biến cố diệt môn khi nàng tám tuổi, Tiểu Linh bị Dạ Hành của Quy Nguyên Lâu bắt cóc, rồi trở thành sát thủ mang danh Dạ Lan trong tổ chức này. **Vô Danh Các** do Tạ Cảnh Duy làm chủ là tổ chức chuyên thu thập, mua bán thông tin tình báo trong giang hồ, không phải tổ chức đào tạo sát thủ. Khi tái ngộ, nàng nhận ra chàng nhưng phải giấu thân phận; Cảnh Duy tin Tiểu Linh đã chết.
 
 > Các trang bên trong chỉ ghi lại những chi tiết đã được nhắc đến, chưa tự điền phần thế giới hay lịch sử chưa chốt.

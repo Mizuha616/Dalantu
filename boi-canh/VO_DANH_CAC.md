@@ -1,18 +1,17 @@
 # Vô Danh Các
 
-**Loại:** Tổ chức liên quan đào tạo sát thủ.  
-**Trạng thái:** Đã xác lập người làm chủ và vai trò trong truyện; những chi tiết còn lại đang mở.
+**Loại:** Tổ chức chuyên **thu thập và mua bán thông tin tình báo trong giang hồ**.  
+**Trạng thái:** Đã chốt chức năng cốt lõi và chủ nhân; các chi tiết khác còn mở.
 
 ## Đã chốt
-- **Các chủ / người làm chủ Vô Danh Các: Tạ Cảnh Duy** (nam chính, 30 tuổi).
-- Chu Tiểu Linh được đưa đến đây sau vụ diệt môn khi nàng tám tuổi. **Trong chính ngày diệt môn, Dạ Hành của Quy Nguyên Lâu đã bắt cóc nàng**; chưa rõ ai chuyển nàng tới Vô Danh Các.
-- Theo thiết lập hiện có, nàng được đào tạo khắc nghiệt để trở thành sát thủ. Nàng cũng bị ép uống thuốc và chịu dịch dung thuật trong nhiều năm; chưa chốt người/tổ chức trực tiếp thi hành từng việc.
+- **Chủ nhân / Các chủ: Tạ Cảnh Duy**, nam chính (30 tuổi theo hồ sơ hiện tại).
+- Vô Danh Các là **đầu mối thu thập và giao dịch tin tức tình báo** trong giang hồ.
+- Đây **không phải** tổ chức sát thủ của Dạ Lan; tổ chức sát thủ của nàng là **Quy Nguyên Lâu**.
 
 ## Chưa xác định
-- Người sáng lập, thời điểm Tạ Cảnh Duy trở thành Các chủ, phân cấp, luật lệ.
-- Địa điểm, hệ thống đào tạo, nhiệm vụ, phục sức, ám hiệu.
-- Vô Danh Các có quan hệ thế nào với **Quy Nguyên Lâu**, Dạ Hành và huyết án Chu gia.
-- Vô Danh Các có liên quan đến lời thề giấu thân phận hay không.
-- Tạ Cảnh Duy biết bao nhiêu về quá khứ, thân phận và việc huấn luyện Dạ Lan; không mặc định chàng biết nàng chính là Chu Tiểu Linh.
+- Người sáng lập; thời điểm Cảnh Duy trở thành Các chủ; cơ cấu nhân sự, địa bàn và phương thức vận hành mạng lưới tin tức.
+- Quan hệ giữa Vô Danh Các và Quy Nguyên Lâu: chưa chốt có hợp tác, đối địch hay giao dịch với nhau không.
+- Cảnh Duy có bao nhiêu thông tin về Dạ Lan, Quy Nguyên Lâu và huyết án Chu gia.
+- Sự liên quan, nếu có, tới nhiệm vụ giá y đỏ.
 
-**Cảnh báo canon:** Chưa xác lập Vô Danh Các là hung thủ diệt môn hay chủ thể áp đặt lời thề. Không đồng nhất Vô Danh Các với Quy Nguyên Lâu. Không biến một giả thuyết cứu Dạ Lan trong nhiệm vụ giá y đỏ thành canon.
+**Quy tắc canon:** Không viết lại Vô Danh Các thành nơi huấn luyện sát thủ. Không tự gán Dạ Lan làm thuộc hạ Vô Danh Các. Không mặc định người nắm tình báo biết hết mọi bí mật của Quy Nguyên Lâu.

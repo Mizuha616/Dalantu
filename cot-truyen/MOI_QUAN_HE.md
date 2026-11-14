@@ -7,8 +7,8 @@
 - **Tình cảm của Dạ Lan:** Vẫn yêu Cảnh Duy; mong chàng hạnh phúc. [ĐÃ CHỐT]
 - **Ràng buộc:** Dạ Lan phải giấu thân phận đến chết. [ĐÃ CHỐT]
 - **Cách gọi:** Chỉ Chu Tiểu Linh gọi Tạ Cảnh Duy là **“Duy ca ca”**; chàng gọi nàng là **“Linh Linh”**. [ĐÃ CHỐT]
-- **Chức vị:** Tạ Cảnh Duy là **Vô Danh Các chủ**, hiện **30 tuổi**. [ĐÃ CHỐT]
-- **Điều chưa rõ:** Tình cảm hiện thời của Cảnh Duy, cơ chế lời thề, hướng hóa giải; chàng biết đến đâu về thân phận Dạ Lan trong Vô Danh Các.
+- **Chức vị:** Tạ Cảnh Duy là **Vô Danh Các chủ**, tổ chức thu thập/mua bán tình báo; hiện **30 tuổi**. Dạ Lan là sát thủ của **Quy Nguyên Lâu**. [ĐÃ CHỐT]
+- **Điều chưa rõ:** Tình cảm hiện thời của Cảnh Duy, cơ chế lời thề, hướng hóa giải; chàng biết đến đâu về thân phận sát thủ của Dạ Lan trong **Quy Nguyên Lâu** và quan hệ giữa hai tổ chức.
 
 ## Quan hệ khác
 Chưa được thiết lập.
