@@ -3,7 +3,7 @@
 **Trạng thái:** Đề cương nguyên tắc, không phải bản thảo chương.
 
 ## Tiền đề đã chốt
-Tạ Cảnh Duy và Chu Tiểu Linh từng có hôn ước. Chu gia bị diệt môn khi nàng tám tuổi: thế lực đứng sau cho rằng các quốc gia hoặc phe phái khác sẽ lợi dụng **năng lực quan sát bẩm sinh, luôn hoạt động và chỉ tồn tại khi người sở hữu còn sống** của đôi mắt Chu gia cho mục tiêu chính trị. Trong biến cố, có người Chu gia bị lấy mắt làm vật trang trí (những đôi mắt lấy khỏi người chết không giữ năng lực). Nàng sống sót nhờ bị **Dạ Hành**, sát thủ nhất đẳng của **Quy Nguyên Lâu**, bắt cóc ngay ngày diệt môn (chưa rõ động cơ cứu hay lợi dụng); về sau thuộc **Quy Nguyên Lâu**, chịu huấn luyện sát thủ, dịch dung và bị ép uống thuốc che giấu danh tính. Cảnh Duy tin Tiểu Linh đã chết.
+Tạ Cảnh Duy và Chu Tiểu Linh từng có hôn ước. Chu gia bị diệt môn khi nàng tám tuổi: thế lực đứng sau cho rằng các quốc gia hoặc phe phái khác sẽ lợi dụng **năng lực quan sát bẩm sinh, luôn hoạt động và chỉ tồn tại khi người sở hữu còn sống** của đôi mắt Chu gia cho mục tiêu chính trị. Trong biến cố, có người Chu gia bị lấy mắt làm vật trang trí (những đôi mắt lấy khỏi người chết không giữ năng lực). Nàng sống sót sau biến cố, đồng thời bị **Dạ Hành**, sát thủ nhất đẳng của **Quy Nguyên Lâu**, bắt cóc ngay ngày diệt môn (chưa rõ động cơ cứu hay lợi dụng); về sau thuộc **Quy Nguyên Lâu**, chịu huấn luyện sát thủ, dịch dung và bị ép uống thuốc che giấu danh tính. Cảnh Duy tin Tiểu Linh đã chết.
 
 **Bối cảnh tổ chức đã chốt:** **Tạ Cảnh Duy (30 tuổi) là chủ Vô Danh Các**, nơi thu thập và mua bán thông tin tình báo giang hồ. **Dạ Lan là sát thủ thuộc Quy Nguyên Lâu**, một tổ chức khác. Chưa chốt quan hệ giữa hai tổ chức và mức độ hiểu biết của Cảnh Duy về Dạ Lan.
 
