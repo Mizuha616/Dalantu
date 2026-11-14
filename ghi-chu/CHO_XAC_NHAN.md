@@ -12,6 +12,7 @@
 - Lời thề được lập với ai, hậu quả nếu phá?
 - Vị trí, võ công, nhiệm vụ hiện tại của Dạ Lan?
 - Nghề nghiệp/địa vị/khả năng của Tạ Cảnh Duy?
+- **Nhiệm vụ giá y đỏ (đã chốt):** Dạ Lan cải trang thành tân nương của một tên tham quan, suýt chết khi bị thuộc hạ ngang cơ cản trở. **Còn mở:** tên tham quan là ai, vai trò của thuộc hạ, kết quả ám sát, ai cứu hoặc hỗ trợ Dạ Lan, vị trí sự kiện trong truyện?
 - Khởi đầu và kết thúc dự định của câu chuyện?
 
 Chỉ chuyển mục sang hồ sơ chính khi Linh Linh xác nhận.
