@@ -47,7 +47,7 @@
 
 ## Danh xưng và cách gọi — ĐÃ CHỐT
 
-- **Tạ Cảnh Duy** là **Vô Danh Các chủ**: quản lý tổ chức **thu thập và mua bán thông tin tình báo trong giang hồ**, **không phải tổ chức sát thủ**.
+- **Tạ Cảnh Duy** là **Vô Danh Các chủ**: quản lý tổ chức **thu thập và mua bán thông tin tình báo trong giang hồ**, **không phải tổ chức sát thủ**. Vô Danh Các có **chiều sâu vượt ra ngoài việc bán thông tin** nhưng chưa chốt chức năng bí mật.
 - **Chỉ Chu Tiểu Linh** gọi chàng là **“Duy ca ca”**; chàng gọi nàng là **“Linh Linh”**.
 - Danh xưng và chức vị không thay đổi nguyên tắc: tính cách của nhân vật giữ nguyên Nguyễn Duy, không tự thêm tính cách kiểu Các chủ.
 
@@ -58,13 +58,19 @@
 - Khi tái ngộ **Dạ Lan**, chàng chưa biết nàng chính là Tiểu Linh.
 - Cảm giác quen thuộc trong ánh mắt nàng cùng những quan sát dần khiến chàng nghi ngờ; không dùng phép màu để nhận diện.
 
+## Liên quan nhiệm vụ giá y đỏ — ĐÃ CHỐT
+- Chàng đến phủ một tên tham quan để giao dịch tình báo và được mời dự hôn lễ.
+- Sau khi biến cố ám sát bùng phát, chàng nghe động xông vào thăm dò; một ánh mắt chạm nhau khiến Dạ Lan thất thần và trúng kiếm chí mạng.
+- **Chàng đưa Dạ Lan trọng thương về Vô Danh Các cứu chữa**, chưa biết nàng chính là Chu Tiểu Linh.
+- Chưa chốt phương thức cứu chữa, việc chàng ứng phó với thuộc hạ phát cuồng, hay những bí mật của Vô Danh Các.
+
 ## Chưa xác định
 
 - Thân thế chi tiết, gia tộc, sư môn, thời điểm trở thành Các chủ và các chức phận khác (nếu có).
 - Tên kiếm, võ công, công pháp, các nhiệm vụ cụ thể và cơ cấu quyền hạn trong Vô Danh Các.
 - Tín vật, ngọc bội, mối quan hệ khác, chi tiết cuộc sống thường ngày.
 - Cách thức và thời điểm phát hiện chân tướng của Dạ Lan; chàng biết được bao nhiêu về **Quy Nguyên Lâu**, nơi nàng được đào tạo thành sát thủ.
-- Không tự chốt việc chàng cứu Dạ Lan trong nhiệm vụ giá y đỏ, hoặc việc chàng có biết Dạ Lan thuộc **Quy Nguyên Lâu** hay không.
+- **Đã chốt** chàng đưa Dạ Lan về cứu chữa sau nhiệm vụ giá y đỏ; chưa chốt cách cứu chữa, hoặc việc chàng có biết Dạ Lan thuộc **Quy Nguyên Lâu** hay không.
 
 **Không tự hoàn thiện các mục trên nếu chưa được Linh Linh chốt.**
 

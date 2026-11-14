@@ -29,10 +29,12 @@
 - Chưa chốt kiểu dáng, chất liệu hay phụ kiện của từng loại y phục.
 
 ### Nhiệm vụ giá y đỏ — ĐÃ CHỐT
-- Dạ Lan cải trang thành tân nương tử của một tên tham quan để thực hiện nhiệm vụ.
-- Khi hành thích tên tham quan, nàng **không ngờ hắn có một thuộc hạ mạnh ngang cơ mình**.
-- Cuộc đụng độ khiến Dạ Lan **suýt chết**.
-- Chưa chốt kết cục ám sát, số phận tên tham quan và thuộc hạ, ai cứu hoặc giúp nàng thoát hiểm, hay vị trí của sự kiện trong tuyến truyện.
+- Dạ Lan cải trang thành tân nương tử của một tên tham quan, chờ tiệc tàn, vào tân phòng và **hành thích thành công tên tham quan**.
+- Nàng giao chiến trong tân phòng với thuộc hạ nam cao lớn, vạm vỡ, võ công thượng thừa, thực lực ngang cơ.
+- Nàng **vô tình đánh trúng huyệt vị** kích hoạt trạng thái điên cuồng liên quan khả năng khống chế của hắn (cơ chế chưa chốt). Hắn tàn sát người trong phủ rồi truy sát nàng ra sân; chênh lệch thể lực dồn nàng vào thế thập tử nhất sinh.
+- Tạ Cảnh Duy nghe động xông vào thăm dò. **Dạ Lan bắt gặp ánh mắt chàng, mất tập trung và trúng một nhát kiếm chí mạng.**
+- **Sau đó Cảnh Duy đưa nàng về Vô Danh Các cứu chữa**; chàng chưa biết nàng là Chu Tiểu Linh.
+- Chưa chốt cách nàng được cứu chữa, số phận tên thuộc hạ, diễn biến tiếp sau và bí mật của Vô Danh Các.
 
 ## Tính cách — ĐÃ CHỐT (15/11/2026)
 - **Dám làm dám nhận**.

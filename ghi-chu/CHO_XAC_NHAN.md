@@ -11,9 +11,9 @@
 - Đặc điểm của dịch dung và thuốc che giấu thân phận?
 - Lời thề được lập với ai, hậu quả nếu phá?
 - Cấp bậc, võ công, nhiệm vụ hiện tại của Dạ Lan trong **Quy Nguyên Lâu**?
-- **Đã chốt:** Cảnh Duy là chủ **Vô Danh Các chuyên thu thập và mua bán tình báo**, không phải tổ chức sát thủ. **Còn mở:** võ công, hoạt động tình báo cụ thể, tổ chức vận hành ra sao, chàng biết bao nhiêu về Dạ Lan thuộc Quy Nguyên Lâu?
-- **Lưu ý không phải canon:** Ý tưởng Tạ Cảnh Duy tình cờ cứu Dạ Lan trong nhiệm vụ giá y đỏ chỉ là **đề xuất đang thảo luận**; phải cân nhắc chàng là chủ Vô Danh Các.
-- **Nhiệm vụ giá y đỏ (đã chốt):** Dạ Lan cải trang thành tân nương của một tên tham quan, suýt chết khi bị thuộc hạ ngang cơ cản trở. **Còn mở:** tên tham quan là ai, vai trò của thuộc hạ, kết quả ám sát, ai cứu hoặc hỗ trợ Dạ Lan, vị trí sự kiện trong truyện?
+- **Đã chốt:** Cảnh Duy là chủ **Vô Danh Các chuyên thu thập và mua bán tình báo**, không phải tổ chức sát thủ. Nhưng **Vô Danh Các không chỉ có mặt nổi buôn bán tin tức**. **Còn mở:** những bí mật/chức năng khác của Các, cơ chế chữa trị người trọng thương, võ công và cách vận hành mạng lưới, chàng biết bao nhiêu về Dạ Lan thuộc Quy Nguyên Lâu?
+- **Đã chốt:** Cảnh Duy đến phủ tham quan để giao dịch tình báo rồi dự hôn lễ; nghe động xuất hiện lúc Dạ Lan bị truy sát; ánh mắt làm nàng thất thần, trúng kiếm chí mạng; **chàng đưa nàng về Vô Danh Các cứu chữa**. **Còn mở:** phương thức cứu chữa và Cảnh Duy ứng phó thế nào với thuộc hạ.
+- **Nhiệm vụ giá y đỏ (đã chốt):** Dạ Lan cải trang thành tân nương, **giết được tham quan**, nhưng vô tình đánh trúng huyệt vị khiến thuộc hạ phát cuồng, tàn sát người trong phủ; hắn truy sát nàng ra sân và nàng trúng kiếm chí mạng vì thất thần khi nhìn thấy Cảnh Duy. **Còn mở:** danh tính tham quan/thuộc hạ, cơ chế huyệt vị, số phận thuộc hạ, vị trí sự kiện trong trục truyện.
 - Khởi đầu và kết thúc dự định của câu chuyện?
 
 Chỉ chuyển mục sang hồ sơ chính khi Linh Linh xác nhận.

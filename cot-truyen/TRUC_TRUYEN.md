@@ -15,12 +15,14 @@ Tạ Cảnh Duy và Chu Tiểu Linh từng có hôn ước. Chu gia bị diệt 
 - Tình cảm của nàng vẫn còn, nhưng nàng mong chàng được hạnh phúc.
 
 ## Tình tiết đã chốt: Nhiệm vụ giá y đỏ
-- **Một nhiệm vụ cụ thể**: Dạ Lan cải trang thành **tân nương tử** của **một tên tham quan**, mặc **bộ giá y đỏ** khiến nhan sắc nàng đẹp đến **kinh diễm**.
-- Khi hành thích tên tham quan, nàng không lường trước việc hắn có **một thuộc hạ thực lực ngang cơ Dạ Lan**.
-- Dạ Lan **suýt chết** trong nhiệm vụ.
-- **Giá y đỏ** là trang phục riêng của nhiệm vụ này. Ngoài tình tiết đó, Dạ Lan có thể mặc nhiều màu tùy nhiệm vụ, bao gồm **đỏ lựu**; **hai màu yêu thích nhất là tím nhạt màu khói và vàng nhạt**.
-- **Chưa xác định** diễn biến giao chiến, kết quả ám sát, thân phận thuộc hạ, người can thiệp, và vị trí tình tiết trong niên biểu.
-- Chi tiết trên là canon; **không tự gán Tạ Cảnh Duy vào vai cứu viện** hoặc tự cho nàng thành công/thất bại. Phương án Cảnh Duy tình cờ cứu Dạ Lan **mới là gợi ý đang bàn**, không phải canon; phải bảo toàn thiết lập **chàng là chủ tổ chức tình báo Vô Danh Các**, không phải chỉ huy sát thủ Quy Nguyên Lâu.
+- **Tạ Cảnh Duy** đến phủ tham quan để giao dịch tình báo, rồi được mời dự hôn lễ.
+- Sau khi tiệc tàn, tân nương đã về tân phòng, khách đã ra về, **Dạ Lan bí mật ám sát và giết được tên tham quan**.
+- Trong tân phòng, nàng giao chiến với tên thuộc hạ cao lớn, vạm vỡ, võ công thượng thừa và ngang cơ nàng. Dạ Lan vô tình đánh trúng **huyệt vị kích hoạt trạng thái phát cuồng liên quan khả năng khống chế của hắn** (cơ chế chưa chốt).
+- Tên thuộc hạ **tàn sát người trong phủ** rồi điên cuồng truy sát Dạ Lan ra sân, đẩy nàng vào thế thập tử nhất sinh vì chênh lệch thể lực.
+- **Cảnh Duy nghe động xông vào thăm dò. Dạ Lan bắt gặp ánh mắt chàng, mất tập trung và trúng một nhát kiếm chí mạng.**
+- **Sau đó Cảnh Duy đưa Dạ Lan về Vô Danh Các cứu chữa.** Chàng chưa biết nàng chính là Chu Tiểu Linh.
+- **Giá y đỏ** là trang phục riêng của nhiệm vụ này. Ngoài tình tiết đó, Dạ Lan có thể mặc nhiều màu; **yêu thích nhất tím nhạt màu khói và vàng nhạt**.
+- **Chưa xác định** cách cứu chữa, việc xử lý tên thuộc hạ, cơ chế huyệt vị, và các chức năng chưa công bố của Vô Danh Các.
 
 ## Chưa chốt
 - Điểm mở đầu, mục tiêu bề mặt của từng nhân vật.

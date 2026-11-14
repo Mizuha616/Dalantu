@@ -1,24 +1,26 @@
 # Nhiệm vụ giá y đỏ — Dạ Lan
 
-**Trạng thái:** ĐÃ CHỐT các tình tiết dưới đây; trình tự và kết quả cuối cùng chưa xác định.
+**Trạng thái:** Những tình tiết dưới đây đã được Linh Linh xác nhận; chi tiết chưa nêu được đánh dấu CHƯA CHỐT.
 
-## Tình tiết canon
-- Trong **một nhiệm vụ cụ thể của cốt truyện**, Dạ Lan **cải trang thành tân nương tử của một tên tham quan**.
-- Nàng mặc **giá y đỏ**, dung mạo trong bộ giá y **đẹp đến kinh diễm**.
-- Mục tiêu hành thích là **tên tham quan**.
-- Khi ra tay, Dạ Lan không ngờ tham quan có **một thuộc hạ mạnh ngang cơ nàng**.
-- Cuộc đụng độ đẩy Dạ Lan vào tình thế **suýt chết**.
+## Diễn biến — ĐÃ CHỐT
+1. Tạ Cảnh Duy đến phủ tên tham quan để thực hiện một **giao dịch tình báo**. Sau khi giao dịch xong, chàng **được mời dự hôn lễ**.
+2. Khi tiệc đã tàn, **tân nương đã được đưa về phòng**, khách khứa phần lớn đã ra về. Vụ ám sát chỉ bắt đầu lúc kín đáo, nhằm giữ bí mật thân phận Dạ Lan.
+3. **Dạ Lan cải trang thành tân nương tử của tên tham quan**, mặc **bộ giá y đỏ đẹp đến kinh diễm**, và **hành thích thành công tên tham quan** trong tân phòng.
+4. Một **thuộc hạ nam cao lớn, vạm vỡ, sức mạnh hơn người, võ công thượng thừa, thực lực vốn ngang cơ Dạ Lan** xuất hiện. Hai người đã **giao chiến ngay trong tân phòng**.
+5. Trong lúc giao chiến, Dạ Lan **vô tình đánh trúng một huyệt vị liên quan đến khả năng khống chế của tên thuộc hạ**, khiến hắn **phát cuồng**. Cơ chế chính xác của huyệt vị và trạng thái này chưa chốt.
+6. Hắn **tàn sát người trong nhà tên tham quan** và **truy sát Dạ Lan ra đến giữa sân**. Chênh lệch về thể lực, cùng sự điên cuồng của hắn, dồn nàng vào tình thế **thập tử nhất sinh**.
+7. Tạ Cảnh Duy **nghe tiếng động, xông vào thăm dò**. Chàng bắt gặp cuộc chiến; **chỉ vì một ánh mắt hướng về chàng**, Dạ Lan **mất tập trung và trúng một nhát kiếm chí mạng**.
+8. **Về sau, Tạ Cảnh Duy đưa Dạ Lan về Vô Danh Các cứu chữa**. Chàng chưa biết nàng chính là Chu Tiểu Linh; đôi mắt nâu thẫm ẩn ánh đỏ khiến chàng cảm thấy quen thuộc.
 
 ## Ghi chú y phục
-- **Giá y đỏ** là một trang phục đặc biệt gắn với nhiệm vụ tân nương tử này; **không giới hạn** khả năng Dạ Lan mặc **đỏ lựu** ở những nhiệm vụ khác.
-- Dạ Lan **thích nhất tím nhạt màu khói và vàng nhạt**; bảng màu nàng có thể mặc theo nhiệm vụ còn gồm **vàng nắng, vàng kim, xanh lam thanh thiên, hồng phấn, đỏ lựu, bạch y và đen tuyền**.
-- Chưa chốt thiết kế chi tiết của giá y, trang sức, kiểu tóc cô dâu.
+- **Giá y đỏ** thuộc riêng tình tiết tân nương tử này, không phải y phục nhiệm vụ thường xuyên.
+- Dạ Lan có thể mặc các màu khác tùy nhiệm vụ; **ưa thích nhất tím nhạt màu khói và vàng nhạt**.
 
-## Chưa chốt, không được tự bổ sung thành canon
-- Danh tính tên tham quan và thuộc hạ; tên địa điểm, thời điểm nhiệm vụ.
-- Tại sao Dạ Lan được giao nhiệm vụ này, diễn biến cải trang.
-- Hình thức ra tay, giao chiến, vết thương cụ thể.
-- Kết quả ám sát; Dạ Lan thoát chết bằng cách nào, có ai cứu nàng hay không.
-- Tạ Cảnh Duy có xuất hiện trong nhiệm vụ không.
+## Bí mật và chi tiết CHƯA CHỐT
+- Danh tính tham quan, thuộc hạ; địa điểm cụ thể và thời điểm trong trục truyện.
+- Cơ chế huyệt vị, tại sao kích hoạt trạng thái điên cuồng; kết cục của tên thuộc hạ.
+- Cảnh Duy can thiệp giao chiến ra sao, quá trình đưa nàng rời phủ, vết thương cụ thể và phương pháp cứu chữa.
+- **Vô Danh Các không chỉ kinh doanh tin tức**, nhưng tổ chức còn những bí mật hay chức năng gì chưa được tiết lộ.
+- Khoảnh khắc Cảnh Duy xác nhận thân phận thật của nàng, và diễn biến quan hệ về sau.
 
-**Quy tắc:** Không mặc định Dạ Lan hạ sát được mục tiêu, cũng không mặc định có nhân vật cứu nàng.
+**Không tự bổ sung ai cứu, ai chữa, nội công/thuốc quý hay chức năng bí mật của Vô Danh Các khi chưa được Linh Linh chốt.**
