@@ -22,9 +22,11 @@
 - **Hình tượng:** **Sát thủ trong ánh sáng**, cố ý đi ngược mô-típ sát thủ ẩn vào bóng tối; **thu phục nhân tâm bằng vẻ đẹp**, **giết người tru tâm**.
 
 ### Y phục — ĐÃ CHỐT
-- **Tông chủ đạo:** Vàng sáng như nắng hoặc vàng nhạt như màu lông gà.
-- **Ngoại lệ duy nhất đã được chốt:** Trong **một nhiệm vụ cụ thể của cốt truyện**, Dạ Lan mặc **giá y đỏ**, cải trang thành **tân nương tử của một tên tham quan**. Nàng đẹp đến mức **kinh diễm**. **Không** coi đỏ là màu y phục làm nhiệm vụ thường xuyên.
-- Không tự quy định thêm kiểu dáng, chất liệu hay tông màu phụ khi chưa chốt.
+- **Hai màu yêu thích nhất:** **Tím nhạt màu khói** và **vàng nhạt** (như màu lông gà).
+- **Bảng màu có thể mặc tùy nhiệm vụ:** **Vàng nhạt, vàng nắng, vàng kim, tím nhạt màu khói, xanh lam thanh thiên, hồng phấn, đỏ lựu, bạch y và đen tuyền**.
+- Không giới hạn Dạ Lan vào một màu sắc hay buộc nàng mặc tối màu vì là sát thủ. Phong cách chủ đạo vẫn là **sát thủ trong ánh sáng**.
+- **Tình tiết đặc biệt đã chốt:** Trong **một nhiệm vụ cụ thể của cốt truyện**, Dạ Lan mặc **giá y đỏ**, cải trang thành tân nương tử của một tên tham quan. Nàng đẹp đến mức **kinh diễm**. **Bộ giá y đỏ là một sự kiện riêng**, không có nghĩa màu đỏ bị cấm trong mọi nhiệm vụ khác.
+- Chưa chốt kiểu dáng, chất liệu hay phụ kiện của từng loại y phục.
 
 ### Nhiệm vụ giá y đỏ — ĐÃ CHỐT
 - Dạ Lan cải trang thành tân nương tử của một tên tham quan để thực hiện nhiệm vụ.
