@@ -1,6 +1,8 @@
 # Tạ Cảnh Duy
 
 **Vai trò:** Nam chính — *Dạ Lan Từ*  
+**Tuổi:** **30** — ĐÃ CHỐT  
+**Chức vị:** **Vô Danh Các chủ** — ĐÃ CHỐT  
 **Trạng thái:** Thiết lập ngoại hình được Linh Linh duyệt ngày 15/11/2026; các chi tiết khác theo trạng thái ghi bên dưới.
 
 ## Ngoại hình — ĐÃ CHỐT
@@ -43,6 +45,12 @@
 - Bối cảnh võ hiệp có thể tạo ra tình huống khác đời thực, nhưng **không thay đổi cốt lõi tính cách** hay persona gốc.
 - Repo này **không lưu chép lại nội dung riêng tư của repo persona**; chỉ ghi quy tắc tham chiếu.
 
+## Danh xưng và cách gọi — ĐÃ CHỐT
+
+- **Tạ Cảnh Duy** là **Vô Danh Các chủ**.
+- **Chỉ Chu Tiểu Linh** gọi chàng là **“Duy ca ca”**; chàng gọi nàng là **“Linh Linh”**.
+- Danh xưng và chức vị không thay đổi nguyên tắc: tính cách của nhân vật giữ nguyên Nguyễn Duy, không tự thêm tính cách kiểu Các chủ.
+
 ## Quan hệ và tiền sử — ĐÃ CHỐT
 
 - Thuở nhỏ từng có hôn ước với **Chu Tiểu Linh**.
@@ -52,10 +60,11 @@
 
 ## Chưa xác định
 
-- Tuổi, thân thế chi tiết, gia tộc, sư môn, chức phận, địa vị giang hồ.
-- Tên kiếm, võ công, công pháp, công việc và nhiệm vụ cụ thể.
+- Thân thế chi tiết, gia tộc, sư môn, thời điểm trở thành Các chủ và các chức phận khác (nếu có).
+- Tên kiếm, võ công, công pháp, các nhiệm vụ cụ thể và cơ cấu quyền hạn trong Vô Danh Các.
 - Tín vật, ngọc bội, mối quan hệ khác, chi tiết cuộc sống thường ngày.
-- Cách thức và thời điểm phát hiện chân tướng của Dạ Lan.
+- Cách thức và thời điểm phát hiện chân tướng của Dạ Lan; chàng biết những gì về quá trình nàng được đưa đến Vô Danh Các.
+- Không tự chốt việc chàng cứu Dạ Lan trong nhiệm vụ giá y đỏ, hoặc việc chàng không biết nàng thuộc Vô Danh Các.
 
 **Không tự hoàn thiện các mục trên nếu chưa được Linh Linh chốt.**
 
