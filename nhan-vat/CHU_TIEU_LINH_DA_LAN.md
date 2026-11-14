@@ -25,10 +25,11 @@
 - **Giới hạn thiết lập:** Chưa xác định những người cụ thể khác trong Chu gia mang đặc điểm này, cơ chế di truyền, hay giới hạn khi sử dụng năng lực.
 
 ## Năng lực của đôi mắt — ĐÃ CHỐT Ở MỨC Ý TƯỞNG
+- **Tính bẩm sinh:** Năng lực quan sát là năng lực **bẩm sinh của huyết thống Chu gia**. Chưa xác định nó luôn hoạt động hay cần chủ động tập trung.
 - **Nhìn qua đã thuộc:** Khả năng ghi nhớ thông tin bằng thị giác sau khi quan sát.
 - **Tương tự Haki quan sát:** Năng lực quan sát và nhận biết nhạy bén khác thường. Đây là cách ví von về hướng sức mạnh; **chưa chốt** các cơ chế như nhìn trước tương lai, đọc ý nghĩ hay phạm vi cảm nhận.
 - **Trí thông minh thị giác:** Năng lực xử lý, phân tích và nhận thức thông tin qua hình ảnh ở mức vượt trội.
-- **Căn nguyên bi kịch Chu gia:** Gia tộc bị diệt môn **vì năng lực đôi mắt này**. Thủ phạm và động cơ cụ thể của họ vẫn chưa được xác định.
+- **Căn nguyên bi kịch Chu gia:** Gia tộc bị diệt môn **vì năng lực đôi mắt này**. Trong cuộc diệt môn, có thành viên Chu gia **bị móc mắt để lấy mắt làm vật trang trí**; chưa xác định nạn nhân cụ thể hay thủ phạm.
 
 Không mặc định việc chỉ nhìn một lần sẽ sao chép trọn vẹn võ công, không tự bổ sung chiêu thức, mức độ sức mạnh hay điểm yếu khi Linh Linh chưa duyệt.
 
