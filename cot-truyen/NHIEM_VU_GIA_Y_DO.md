@@ -31,6 +31,12 @@
 - Nàng lạnh lẽo nhìn chàng, vô cảm nói: **“Ta thích giết thì giết thôi.”**
 - Đây là lời thoại đã chốt; **chưa chốt** lý do sâu xa khiến nàng phải giết, phản ứng chính xác của Cảnh Duy và hướng điều tra tiếp theo.
 
+### Tội ác của tên tham quan và hướng điều tra — ĐÃ CHỐT
+- Tên tham quan bị Dạ Lan hành thích **đã cưỡng ép và sát hại nhiều tân nương là những cô gái nhà lành**. Đây là sự thật về nạn nhân, không phải lời tự biện hộ từ Dạ Lan.
+- Sau cuộc truy vấn, **Tạ Cảnh Duy có thể tự điều tra và phát hiện những tội ác này nhờ mạng lưới tình báo Vô Danh Các**; Dạ Lan không cần giải thích hành động của mình hay kể công.
+- Phân biệt: Cảnh Duy đã tìm ra **diễn biến đêm hôn lễ** khi chất vấn, nhưng điều tra về **những tân nương trước đó** là lớp sự thật chàng tiếp tục khám phá; chưa chốt hình thức chứng cứ cụ thể.
+- **Chưa chốt:** Dạ Lan nhận lệnh ám sát từ ai, động cơ chính xác của nàng, danh tính các nạn nhân, những người bao che và mức độ liên quan của kẻ giật dây.
+
 ### Phong thái đối thoại — ĐÃ CHỐT
 - Dạ Lan lạnh lùng, ít lời, vô pháp vô thiên; không có nhu cầu giải thích hoặc biện minh cách hành xử của mình.
 - Khi Cảnh Duy tiếp tục truy hỏi sau câu **“Ta thích giết thì giết thôi.”**, nàng có thể chỉ lặng lẽ nhìn chàng rồi quay mặt đi. **Không** viết những lời đối đáp dài, thách thức hoặc giảng giải của nàng. Động cơ thực sự của vụ ám sát vẫn chưa chốt.
