@@ -257,15 +257,13 @@ Giọng nói ấy bình thản, nhưng trong đó có một sự nhẹ nhõm kh�
 
 Dạ Lan nhìn chàng.
 
-Trong ánh mắt nâu thẫm, sự dịu dàng lại hiện lên như đêm ấy. Nàng không vội rời mắt, dường như muốn nhìn rõ từng đường nét trên gương mặt đã trưởng thành của chàng.
-
-Nhưng khi cất tiếng, giọng nàng vẫn lạnh nhạt.
+Đôi mắt nâu thẫm bình thản, tĩnh đến mức khó dò. Không còn chút dấu vết nào của nụ cười giữa sân phủ đêm ấy. Nàng cất tiếng, giọng lạnh nhạt.
 
 “Đây là đâu?”
 
 “Vô Danh Các.”
 
-Ánh nhìn nàng khẽ động.
+Sắc mặt nàng không đổi.
 
 Vô Danh Các.
 
@@ -279,19 +277,7 @@ Nàng nhìn chàng thêm một lần.
 
 Dạ Lan im lặng.
 
-Một thoáng kinh ngạc lướt qua đáy mắt.
-
-Hóa ra người mà bao kẻ trong giang hồ muốn gặp lại chính là vị hôn phu năm xưa của nàng.
-
-Năm ấy, nàng còn bé đến mức chỉ cần ngẩng đầu là có thể thấy chàng đứng trước mặt. Bây giờ chàng đã là một nam tử trưởng thành, có bản lĩnh và vị thế khiến người khác phải kiêng dè.
-
-Nàng bất giác thấy vui.
-
-Không phải vì chức vị ấy cao đến đâu.
-
-Mà vì Cảnh Duy đã có một cuộc đời của riêng mình, vẫn bình an bước qua những năm tháng không có nàng.
-
-Chỉ tiếc niềm vui ấy không thể nói ra.
+Người đứng trước mặt nàng, hóa ra chính là vị Các chủ họ Tạ mà giang hồ vẫn đồn đại thần bí, khó gặp.
 
 Dạ Lan thu ánh mắt về, thản nhiên đáp:
 
@@ -353,7 +339,7 @@ Nụ cười nơi môi Cảnh Duy chậm rãi nhạt đi.
 
 Dạ Lan ngước nhìn chàng.
 
-Không phải ánh mắt dò xét. Nàng chỉ nhìn chàng rất yên lặng, như muốn ghi nhớ cả nét cười vừa tắt ấy.
+Ánh mắt nàng phẳng lặng, không chút hiếu kỳ trước sự thay đổi trên gương mặt chàng.
 
 Ánh sáng ngoài cửa sổ nghiêng qua đôi mắt nàng.
 
@@ -393,13 +379,9 @@ Cảnh Duy nhận ra mình đã nhìn nàng hơi lâu.
 
 Nàng vẫn nhìn chàng.
 
-Không hỏi thêm, cũng không tìm cách né tránh.
+Không hỏi thêm. Trong đôi mắt ấy chẳng có lấy một gợn sóng, như thể chuyện sống chết hay những lời dò hỏi đều không đủ khiến nàng bận tâm.
 
-Chính ánh mắt dịu dàng ấy lại khiến Tạ Cảnh Duy thấy khó hiểu.
-
-Người trước mặt rõ ràng nói chuyện lạnh nhạt, chẳng buồn trả lời khi không muốn. Nhưng mỗi lần nhìn thẳng vào chàng, ánh nhìn ấy lại có một sự thân thuộc sâu sắc đến khó gọi tên.
-
-Nó giống ánh mắt của người đã chờ đợi.
+Tạ Cảnh Duy lại nhớ ánh mắt khác thường của nàng giữa sân phủ đêm ấy. Cùng một người, vậy mà lúc này chàng không tìm được dù chỉ một dấu vết của khoảnh khắc đó.
 
 Cảnh Duy không vội hỏi.
 
@@ -457,7 +439,7 @@ Hai hình ảnh ấy không dễ đặt cạnh câu trả lời vừa rồi.
 
 Dạ Lan không trả lời.
 
-Nàng lặng lẽ nhìn chàng thêm một lúc, ánh mắt vẫn không hề lạnh như giọng nói, rồi quay mặt về phía cửa sổ.
+Nàng nhìn chàng thêm một lúc, ánh mắt lạnh nhạt không chút lay chuyển, rồi quay mặt về phía cửa sổ.
 
 Câu chuyện, đối với nàng, đã kết thúc.
 
@@ -469,19 +451,11 @@ Chàng có thể tiếp tục hỏi, nhưng nàng sẽ không vì bị hỏi nhi
 
 Dạ Lan không quay lại.
 
-Đến khi tiếng bước chân chàng xa dần, nàng mới lặng lẽ nhắm mắt.
+Đến khi tiếng bước chân chàng xa dần, Dạ Lan vẫn ngồi yên.
 
-Nàng đã gặp lại Duy ca ca.
+Một cơn gió lùa qua song cửa, lay nhẹ mép chăn. Nàng khép mắt, vẻ mặt không đổi.
 
-Như thế đã là điều may mắn mà nàng chưa từng dám chắc mình có được.
-
-Nhưng nàng vẫn là Dạ Lan.
-
-Một người đi trên con đường sát thủ, mang theo ân oán không thể tùy tiện đặt xuống. Nếu nhận lại chàng, nếu để chàng bước vào những chuyện ấy vì mình, nàng sẽ có lỗi với chính điều nàng muốn gìn giữ nhất.
-
-Nàng có thể để chàng nhìn thấy tình yêu trong mắt mình.
-
-Chỉ không thể nói ra tên thật.
+Không ai biết lúc ấy nàng đang nghĩ gì.
 
 ***
 
