@@ -82,6 +82,10 @@ Không mặc định việc chỉ nhìn một lần sẽ sao chép trọn vẹn 
 - Khi trận chiến đã chấm dứt, nàng để Cảnh Duy đỡ/bế lúc trọng thương vì đã nhận ra và tin chàng. **Điều này không có nghĩa nàng buông kiếm trước khi kẻ địch bị hạ**; trong khi chàng còn chiến đấu, nàng vẫn gắng gượng trợ kiếm. Nếu là người lạ, nàng thà chết chứ không khuất phục.
 - Chưa xác định hình thức, vị trí giấu lệnh bài và lời thoại cụ thể.
 
+### Phát hiện thân phận Tạ Cảnh Duy — ĐÃ CHỐT
+- Tỉnh lại sau khi được cứu, Dạ Lan hỏi đây là nơi nào, rồi mới biết người hôn phu năm xưa đã trở thành **chủ Vô Danh Các**; trước đó nàng chỉ nghe danh một Các chủ họ Tạ hành tung thần bí. Thời điểm phát hiện là **trước cuộc chất vấn về tên tham quan**.
+- Nàng tiếp tục giấu thân phận thật và giữ thái độ lạnh lùng. Lời thoại cụ thể và biểu hiện nội tâm chưa chốt.
+
 ## Chưa xác định
 - Danh tính thế lực đứng sau huyết án; **đã biết người bắt cóc là Dạ Hành**, sát thủ nhất đẳng của Quy Nguyên Lâu, nhưng chưa biết động cơ thực sự, hành trình sau khi bị bắt và người ra lệnh huấn luyện nàng; nguyên nhân và điều kiện lời thề.
 - Võ công, nhiệm vụ, thứ bậc của nàng trong **Quy Nguyên Lâu**.
