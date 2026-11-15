@@ -3,7 +3,7 @@
 **Các mục dưới đây là câu hỏi, không phải canon.**
 
 - **Đã chốt:** Tạ Cảnh Duy **30 tuổi, là Vô Danh Các chủ**; chỉ Chu Tiểu Linh gọi chàng **Duy ca ca**, chàng gọi nàng **Linh Linh**. **Còn mở:** tuổi lúc hôn ước, thời điểm lên làm Các chủ.
-- Tuổi hiện tại của Dạ Lan khi tái ngộ?
+- **Đã chốt:** khi Chu Tiểu Linh 8 tuổi, Tạ Cảnh Duy 11 tuổi (**hơn 3 tuổi**); chàng nhớ rõ đặc điểm di truyền đôi mắt Chu gia. Với Cảnh Duy 30 tuổi, tuổi Dạ Lan lúc tái ngộ **suy ra khoảng 27**, còn mốc sinh nhật cụ thể chưa xác định.
 - Tên triều đại/quốc gia; thời gian, địa danh?
 - **Đã chốt:** Năng lực quan sát là bẩm sinh, luôn hoạt động và chỉ tồn tại khi người sở hữu còn sống; mắt của người đã chết không còn năng lực. Thế lực đứng sau diệt môn vì cho rằng các nước/phe phái khác có thể sử dụng năng lực này cho mục tiêu chính trị.
 - **Còn mở:** Danh tính thế lực đứng sau và người trực tiếp ra tay, căn cứ nhận định của chúng, địa điểm và diễn biến chi tiết huyết án?
