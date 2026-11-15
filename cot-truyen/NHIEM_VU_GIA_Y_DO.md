@@ -31,6 +31,10 @@
 - Nàng lạnh lẽo nhìn chàng, vô cảm nói: **“Ta thích giết thì giết thôi.”**
 - Đây là lời thoại đã chốt; **chưa chốt** lý do sâu xa khiến nàng phải giết, phản ứng chính xác của Cảnh Duy và hướng điều tra tiếp theo.
 
+### Phong thái đối thoại — ĐÃ CHỐT
+- Dạ Lan lạnh lùng, ít lời, vô pháp vô thiên; không có nhu cầu giải thích hoặc biện minh cách hành xử của mình.
+- Khi Cảnh Duy tiếp tục truy hỏi sau câu **“Ta thích giết thì giết thôi.”**, nàng có thể chỉ lặng lẽ nhìn chàng rồi quay mặt đi. **Không** viết những lời đối đáp dài, thách thức hoặc giảng giải của nàng. Động cơ thực sự của vụ ám sát vẫn chưa chốt.
+
 ## Ghi chú y phục
 - **Giá y đỏ** thuộc riêng tình tiết tân nương tử này, không phải y phục nhiệm vụ thường xuyên.
 - Dạ Lan có thể mặc các màu khác tùy nhiệm vụ; **ưa thích nhất tím nhạt màu khói và vàng nhạt**.
