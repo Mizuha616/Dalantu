@@ -15,6 +15,10 @@
 - Nàng có lời thề **giấu thân phận đến chết**.
 - Nàng vẫn yêu chàng, nhưng chỉ mong chàng được hạnh phúc.
 
+### Chênh lệch tuổi với Cảnh Duy — ĐÃ CHỐT
+- Khi Chu Tiểu Linh **8 tuổi**, Tạ Cảnh Duy **11 tuổi**, hơn nàng **3 tuổi**. Cảnh Duy nhớ rất rõ đặc điểm **di truyền đôi mắt Chu gia** từ khi còn bé.
+- Khi tái ngộ, ánh mắt nâu thẫm có sắc đỏ ẩn sâu của Dạ Lan càng khiến Cảnh Duy suy nghĩ, nhưng **chàng vẫn chưa biết nàng là Linh Linh**. Tuổi hiện tại của nàng có thể suy ra khoảng 27 khi chàng 30, tùy mốc sinh nhật cụ thể chưa xác định.
+
 ## Ngoại hình và khí chất — ĐÃ CHỐT (15/11/2026)
 - **Chiều cao:** 1m65.
 - **Đôi tay:** Bàn tay với **những ngón tay thon nhỏ, trắng ngần**.
