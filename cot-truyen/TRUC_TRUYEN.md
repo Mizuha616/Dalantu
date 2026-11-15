@@ -28,12 +28,13 @@ Tạ Cảnh Duy và Chu Tiểu Linh từng có hôn ước. Chu gia bị diệt 
 - **Cảnh Duy nghe động xông vào thăm dò. Dạ Lan bắt gặp ánh mắt chàng, mất tập trung và trúng một nhát kiếm chí mạng.**
 - **Sau đó Cảnh Duy đưa Dạ Lan về Vô Danh Các cứu chữa.** Chàng chưa biết nàng chính là Chu Tiểu Linh.
 - **Giá y đỏ** là trang phục riêng của nhiệm vụ này. Ngoài tình tiết đó, Dạ Lan có thể mặc nhiều màu; **yêu thích nhất tím nhạt màu khói và vàng nhạt**.
-- **Chưa xác định** cách cứu chữa, việc xử lý tên thuộc hạ, cơ chế huyệt vị, và các chức năng chưa công bố của Vô Danh Các.
+- **Đã chốt:** tên thuộc hạ bị giết trong trận giao chiến sau đó với Cảnh Duy, có Dạ Lan trọng thương gắng gượng trợ kiếm; chỉ khi hắn thực sự chết nàng mới buông kiếm, nhắm mắt. **Chưa xác định:** đòn quyết định thuộc về ai, cách cứu chữa, cơ chế huyệt vị, các chức năng chưa công bố của Vô Danh Các.
 
 ### Khoảnh khắc trúng kiếm và tái ngộ — ĐÃ CHỐT
 - Sau khi bị một nhát kiếm chí mạng, Dạ Lan vẫn nhìn Tạ Cảnh Duy và **mỉm cười**. Nụ cười vừa bi thương vừa buông bỏ, giải thoát; máu đỏ tươi trào nơi khóe môi, nhuộm cả hàm răng trắng, còn ánh mắt nàng đầy yêu thương, như muốn nói **“Cuối cùng cũng gặp lại chàng.”**
 - Nàng không biết liệu mình có sống qua vết thương không; chỉ an lòng vì tận mắt thấy hôn phu thuở nhỏ vẫn còn sống, trưởng thành khỏe mạnh. Câu nội tâm **“Cuối cùng cũng gặp lại chàng.”** đã được Linh Linh chọn làm câu chốt.
-- **Chưa chốt:** Tạ Cảnh Duy xử lý tên thuộc hạ vẫn còn sống, đang phát cuồng và tiếp tục đe dọa Dạ Lan như thế nào; các đoạn giao đấu và thời điểm bế nàng cụ thể.
+- **Đã chốt:** sau khi trúng kiếm chí mạng và mỉm cười với Cảnh Duy, Dạ Lan **không buông kiếm ngay**. Trong lúc chàng đang giao chiến với tên thuộc hạ vẫn còn sống, nàng cố gắng trợ kiếm cho chàng dù trọng thương. **Chỉ sau khi hai người thực sự giết được kẻ địch**, nàng mới buông kiếm và nhắm mắt.
+- **Chưa chốt:** đòn thế cụ thể, ai tung đòn kết liễu, thời điểm Cảnh Duy bế nàng; **nhắm mắt không đồng nghĩa đã chết**.
 
 ## Chưa chốt
 - Điểm mở đầu, mục tiêu bề mặt của từng nhân vật.
