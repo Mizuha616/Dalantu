@@ -26,6 +26,11 @@
 - **Đã chốt:** tên đối thủ phát cuồng vẫn còn sống sau khi đâm nàng, và Tạ Cảnh Duy giao chiến với hắn. Dạ Lan bị thương chí mạng nhưng vẫn gắng gượng **trợ kiếm cho Cảnh Duy**. **Sau khi kẻ địch thực sự bị giết**, nàng mới buông kiếm và nhắm mắt.
 - **Chưa chốt:** những đòn kiếm cụ thể, ai ra đòn kết liễu, thời điểm và tư thế Cảnh Duy đỡ/bế nàng.
 
+### Chất vấn sau khi cứu sống — ĐÃ CHỐT
+- Sau khi Dạ Lan tỉnh lại, Cảnh Duy đã điều tra được chân tướng sự việc đêm hôn lễ. Chàng truy vấn nàng vì sao giết tham quan, thay vì giữ hắn sống để moi thông tin và lần ra người giật dây phía sau.
+- Nàng lạnh lẽo nhìn chàng, vô cảm nói: **“Ta thích giết thì giết thôi.”**
+- Đây là lời thoại đã chốt; **chưa chốt** lý do sâu xa khiến nàng phải giết, phản ứng chính xác của Cảnh Duy và hướng điều tra tiếp theo.
+
 ## Ghi chú y phục
 - **Giá y đỏ** thuộc riêng tình tiết tân nương tử này, không phải y phục nhiệm vụ thường xuyên.
 - Dạ Lan có thể mặc các màu khác tùy nhiệm vụ; **ưa thích nhất tím nhạt màu khói và vàng nhạt**.
