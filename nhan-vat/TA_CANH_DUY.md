@@ -64,6 +64,11 @@
 - **Chàng đưa Dạ Lan trọng thương về Vô Danh Các cứu chữa**, chưa biết nàng chính là Chu Tiểu Linh.
 - Chưa chốt phương thức cứu chữa, việc chàng ứng phó với thuộc hạ phát cuồng, hay những bí mật của Vô Danh Các.
 
+### Thông tin mới về lần gặp Dạ Lan — ĐÃ CHỐT
+- Trước đó chàng **đã nghe danh** nữ sát thủ Dạ Lan của Quy Nguyên Lâu, nổi tiếng ngông cuồng, bá đạo, nhưng chưa từng gặp mặt.
+- Khi đỡ/bế nữ sát thủ trọng thương, chàng nhìn thấy lệnh bài trên người nàng khắc chữ **Dạ** và hình **hoa lan**, từ đó **suy đoán** nàng là Dạ Lan của Quy Nguyên Lâu. Chàng **không nhận ra** nàng chính là Chu Tiểu Linh.
+- Dạ Lan chỉ biết danh tiếng một Các chủ họ Tạ hành tung thần bí, **chưa biết** Cảnh Duy chính là Vô Danh Các chủ.
+
 ## Chưa xác định
 
 - Thân thế chi tiết, gia tộc, sư môn, thời điểm trở thành Các chủ và các chức phận khác (nếu có).
