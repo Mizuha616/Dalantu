@@ -95,10 +95,11 @@ Không mặc định việc chỉ nhìn một lần sẽ sao chép trọn vẹn 
 - Dạ Lan lạnh lùng nói: **“Vậy không phiền Các chủ.”** rồi tự bước xuống giường định rời đi, nhưng lập tức **khuỵu xuống** vì vết thương chí mạng chưa hồi phục. Nàng đánh giá quá cao thể trạng của mình, dù vẫn giữ phong thái kiêu hãnh và ít lời.
 - **Cảnh Duy bế nàng trở lại giường**, nhưng nàng vẫn mạnh miệng nói **“Ta không sao.”** Dạ Lan tự đánh giá mình khỏe hơn thực tế, dù vẫn trọng thương. Cảnh Duy thấy sự bá đạo, bướng bỉnh ấy buồn cười; nàng còn trẻ, **trạc tuổi Linh Linh nếu còn sống**. Chưa chốt lời đáp chính xác của chàng.
 
-### Giới hạn che giấu trước Tạ Cảnh Duy — ĐÃ CHỐT
-- Dạ Lan **chỉ không thừa nhận bằng lời** thân phận Chu Tiểu Linh; **trước mặt Tạ Cảnh Duy, nàng không cố che giấu ánh mắt yêu thương**. Ánh nhìn có thể dịu dàng và chân thành dù lời nói, thái độ bên ngoài vẫn lạnh lùng.
-- Sự lạnh lùng và bá đạo, cùng việc giữ khoảng cách, là cách nàng **tránh để Cảnh Duy vô tình bị cuốn vào ân oán và con đường sát thủ nguy hiểm của mình**, không phải vì hết yêu hay muốn khiến chàng ghét nàng.
-- Việc đôi khi **im lặng nhìn rồi quay mặt đi** trong đối thoại là cách kết thúc truy vấn, **không phải quy tắc nàng tránh ánh mắt Cảnh Duy hay tìm cách giấu tình cảm qua ánh nhìn**.
+### Giới hạn che giấu trước Tạ Cảnh Duy — ĐÃ CHỐT, cập nhật 16/11/2026
+- **Chỉ duy nhất lúc cận tử**, ngay sau nhát kiếm chí mạng, nàng nhìn Cảnh Duy **dịu dàng, yêu thương** và mỉm cười bi thương, như muốn nói “Cuối cùng cũng gặp lại chàng.”
+- **Sau khi tỉnh lại**, nàng **không để lộ tình cảm qua ánh mắt, giọng nói hay cử chỉ**, không chủ động gợi ý thân phận, không hỏi han chàng bằng sự quan tâm khác thường. Với **mọi người, kể cả Tạ Cảnh Duy**, nàng đều thể hiện vẻ **lạnh lùng, xa cách, vô pháp vô thiên**; ít lời, suy nghĩ khó đoán, không dễ bộc lộ động cơ.
+- Nàng vẫn yêu chàng nhưng giữ khoảng cách để **không kéo chàng vào ân oán và con đường sát thủ nguy hiểm của mình**. Không để lời kể giải thích hộ suy nghĩ nàng quá thường xuyên, hoặc biến các cuộc đối thoại thành tự sự thú nhận.
+- **Màu mắt nâu thẫm có sắc đỏ ẩn sâu** vẫn tồn tại và khiến Cảnh Duy dần có nghi vấn có cơ sở; đây là **dấu hiệu huyết thống**, không phải vẻ nhìn âu yếm. Không tự thêm biểu cảm dịu dàng sau khi tỉnh.
 - Lời thề không nhận thân vẫn ràng buộc; không tự chốt cách hóa giải hay những kẻ thù cụ thể.
 
 ## Chưa xác định
