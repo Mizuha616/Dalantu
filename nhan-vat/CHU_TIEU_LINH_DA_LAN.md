@@ -67,6 +67,12 @@
 
 Không mặc định việc chỉ nhìn một lần sẽ sao chép trọn vẹn võ công, không tự bổ sung chiêu thức, mức độ sức mạnh hay điểm yếu khi Linh Linh chưa duyệt.
 
+### Tái ngộ và lệnh bài — ĐÃ CHỐT
+- Dạ Lan có nghe danh **Vô Danh Các chủ họ Tạ** nhưng không biết người ấy chính là **Tạ Cảnh Duy**; khi gặp lại, nàng chỉ nhận ra hôn phu thuở nhỏ.
+- Nàng mang trên người **lệnh bài sát thủ khắc chữ Dạ và một đóa hoa lan**; Cảnh Duy trông thấy khi bế nàng, từ đó suy đoán nàng là Dạ Lan của Quy Nguyên Lâu.
+- Nàng để Cảnh Duy đỡ/bế khi trọng thương vì đã nhận ra và tin chàng. Nếu là người lạ, nàng thà chết chứ không khuất phục.
+- Chưa xác định hình thức, vị trí giấu lệnh bài và lời thoại cụ thể.
+
 ## Chưa xác định
 - Danh tính thế lực đứng sau huyết án; **đã biết người bắt cóc là Dạ Hành**, sát thủ nhất đẳng của Quy Nguyên Lâu, nhưng chưa biết động cơ thực sự, hành trình sau khi bị bắt và người ra lệnh huấn luyện nàng; nguyên nhân và điều kiện lời thề.
 - Võ công, nhiệm vụ, thứ bậc của nàng trong **Quy Nguyên Lâu**.
