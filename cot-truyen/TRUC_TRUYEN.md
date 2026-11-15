@@ -5,11 +5,11 @@
 ## Tiền đề đã chốt
 Tạ Cảnh Duy và Chu Tiểu Linh từng có hôn ước. Chu gia bị diệt môn khi nàng tám tuổi: thế lực đứng sau cho rằng các quốc gia hoặc phe phái khác sẽ lợi dụng **năng lực quan sát bẩm sinh, luôn hoạt động và chỉ tồn tại khi người sở hữu còn sống** của đôi mắt Chu gia cho mục tiêu chính trị. Trong biến cố, có người Chu gia bị lấy mắt làm vật trang trí (những đôi mắt lấy khỏi người chết không giữ năng lực). Nàng sống sót sau biến cố, đồng thời bị **Dạ Hành**, sát thủ nhất đẳng của **Quy Nguyên Lâu**, bắt cóc ngay ngày diệt môn (chưa rõ động cơ cứu hay lợi dụng); về sau thuộc **Quy Nguyên Lâu**, chịu huấn luyện sát thủ, dịch dung và bị ép uống thuốc che giấu danh tính. Cảnh Duy tin Tiểu Linh đã chết.
 
-**Bối cảnh tổ chức đã chốt:** **Tạ Cảnh Duy (30 tuổi) là chủ Vô Danh Các**, nơi thu thập và mua bán thông tin tình báo giang hồ. **Dạ Lan là sát thủ thuộc Quy Nguyên Lâu**, một tổ chức khác. Chưa chốt quan hệ giữa hai tổ chức và mức độ hiểu biết của Cảnh Duy về Dạ Lan.
+**Bối cảnh tổ chức đã chốt:** **Tạ Cảnh Duy (26 tuổi) là chủ Vô Danh Các**, nơi thu thập và mua bán thông tin tình báo giang hồ. **Dạ Lan là sát thủ thuộc Quy Nguyên Lâu**, một tổ chức khác. Chưa chốt quan hệ giữa hai tổ chức và mức độ hiểu biết của Cảnh Duy về Dạ Lan.
 
 ### Mốc tuổi và căn cứ nghi ngờ — ĐÃ CHỐT
 - Lúc Chu Tiểu Linh **8 tuổi** thì Tạ Cảnh Duy **11 tuổi**, cách nhau **3 tuổi**. Cảnh Duy ở tuổi ấy đã biết rõ đặc điểm **di truyền đôi mắt Chu gia**.
-- Ở thời điểm Cảnh Duy **30 tuổi**, khoảng **19 năm** đã trôi qua từ biến cố (không tự ấn định ngày/năm sinh). Nữ sát thủ Dạ Lan trạc tuổi Linh Linh nếu còn sống.
+- Ở thời điểm Cảnh Duy **26 tuổi**, Dạ Lan **23 tuổi**, khoảng **15 năm** đã trôi qua từ biến cố (không tự ấn định ngày/năm sinh). Nữ sát thủ Dạ Lan trạc tuổi Linh Linh nếu còn sống.
 - Bởi thế, ánh mắt **nâu thẫm có sắc đỏ ẩn sâu** của nàng là **manh mối thật sự** khiến chàng suy nghĩ và dần nghi ngờ, nhưng chưa đủ để chàng lập tức nhận ra hay kết luận về thân phận Chu Tiểu Linh.
 
 ## Mấu chốt tái ngộ đã chốt
