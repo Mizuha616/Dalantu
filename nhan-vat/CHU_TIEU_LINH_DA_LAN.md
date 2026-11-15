@@ -88,7 +88,7 @@ Không mặc định việc chỉ nhìn một lần sẽ sao chép trọn vẹn 
 
 ### Phản ứng ngay sau khi biết thân phận Các chủ — ĐÃ CHỐT
 - Dạ Lan lạnh lùng nói: **“Vậy không phiền Các chủ.”** rồi tự bước xuống giường định rời đi, nhưng lập tức **khuỵu xuống** vì vết thương chí mạng chưa hồi phục. Nàng đánh giá quá cao thể trạng của mình, dù vẫn giữ phong thái kiêu hãnh và ít lời.
-- Chưa chốt động tác và lời đáp cụ thể của Cảnh Duy khi nàng khuỵu xuống.
+- **Cảnh Duy bế nàng trở lại giường**, nhưng nàng vẫn mạnh miệng nói **“Ta không sao.”** Dạ Lan tự đánh giá mình khỏe hơn thực tế, dù vẫn trọng thương. Cảnh Duy thấy sự bá đạo, bướng bỉnh ấy buồn cười; nàng còn trẻ, **trạc tuổi Linh Linh nếu còn sống**. Chưa chốt lời đáp chính xác của chàng.
 
 ## Chưa xác định
 - Danh tính thế lực đứng sau huyết án; **đã biết người bắt cóc là Dạ Hành**, sát thủ nhất đẳng của Quy Nguyên Lâu, nhưng chưa biết động cơ thực sự, hành trình sau khi bị bắt và người ra lệnh huấn luyện nàng; nguyên nhân và điều kiện lời thề.
