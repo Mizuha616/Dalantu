@@ -25,6 +25,11 @@ Tạ Cảnh Duy và Chu Tiểu Linh từng có hôn ước. Chu gia bị diệt 
 - Nàng sẵn lòng để Cảnh Duy đỡ/bế không phải vì chịu khuất phục, mà vì đã nhận ra chàng. Với người lạ, nàng thà chết cũng không chịu phục.
 - **Chưa chốt:** hình dáng, chất liệu, vị trí giấu lệnh bài; cách Cảnh Duy bế nàng và lời thoại cụ thể.
 
+### Cảm xúc không giấu trong ánh mắt — ĐÃ CHỐT
+- Dạ Lan giữ lời thề: **không thừa nhận bằng lời** mình là Chu Tiểu Linh. Tuy nhiên trước Tạ Cảnh Duy, nàng **không giấu ánh mắt yêu thương**; ánh mắt có thể trái ngược giọng điệu lạnh nhạt và lời phủ nhận.
+- Nàng dùng vẻ lạnh lùng, bá đạo và khoảng cách để **bảo vệ chàng khỏi bị cuốn vào ân oán cùng hiểm nguy của con đường sát thủ**. Đây không phải sự hết yêu, cũng không phải cố tình che giấu tình cảm qua ánh mắt.
+- Những lúc nàng im lặng, quay đi khi bị chất vấn chỉ thể hiện từ chối giải thích, **không đồng nghĩa né tránh mọi ánh nhìn hay bịt kín cảm xúc**.
+
 ## Tình tiết đã chốt: Nhiệm vụ giá y đỏ
 - **Tạ Cảnh Duy** đến phủ tham quan để giao dịch tình báo, rồi được mời dự hôn lễ.
 - Sau khi tiệc tàn, tân nương đã về tân phòng, khách đã ra về, **Dạ Lan bí mật ám sát và giết được tên tham quan**.
