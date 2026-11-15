@@ -4,7 +4,7 @@
 **Trạng thái:** Đã chốt chức năng cốt lõi và chủ nhân; các chi tiết khác còn mở.
 
 ## Đã chốt
-- **Chủ nhân / Các chủ: Tạ Cảnh Duy**, nam chính (30 tuổi theo hồ sơ hiện tại).
+- **Chủ nhân / Các chủ: Tạ Cảnh Duy**, nam chính (26 tuổi theo hồ sơ hiện tại).
 - Vô Danh Các là **đầu mối thu thập và giao dịch tin tức tình báo** trong giang hồ, nhưng **còn có chiều sâu/khả năng khác chưa được tác giả tiết lộ**. Không tự định danh hoặc thêm cơ sở bí mật khi chưa được chốt.
 - **Sau nhiệm vụ giá y đỏ:** Tạ Cảnh Duy **đưa Dạ Lan trúng một kiếm chí mạng về Vô Danh Các để cứu chữa**. Chưa chốt ai chữa, biện pháp cứu chữa hay cơ sở vật chất cụ thể.
 - Đây **không phải** tổ chức sát thủ của Dạ Lan; tổ chức sát thủ của nàng là **Quy Nguyên Lâu**.
