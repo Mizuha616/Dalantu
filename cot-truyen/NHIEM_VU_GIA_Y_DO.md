@@ -12,6 +12,13 @@
 7. Tạ Cảnh Duy **nghe tiếng động, xông vào thăm dò**. Chàng bắt gặp cuộc chiến; **chỉ vì một ánh mắt hướng về chàng**, Dạ Lan **mất tập trung và trúng một nhát kiếm chí mạng**.
 8. **Về sau, Tạ Cảnh Duy đưa Dạ Lan về Vô Danh Các cứu chữa**. Chàng chưa biết nàng chính là Chu Tiểu Linh; đôi mắt nâu thẫm ẩn ánh đỏ khiến chàng cảm thấy quen thuộc.
 
+### Chi tiết cuộc tái ngộ — ĐÃ CHỐT
+- Dạ Lan biết có một Vô Danh Các chủ họ Tạ nhưng chưa biết đó là Tạ Cảnh Duy; khi thấy chàng, nàng chỉ nhận ra vị hôn phu năm xưa.
+- Tạ Cảnh Duy đã nghe danh nữ sát thủ Dạ Lan của Quy Nguyên Lâu ngông cuồng, bá đạo, nhưng hai người chưa từng gặp mặt.
+- Khi chàng đỡ/bế Dạ Lan trọng thương, nàng dễ dàng buông xuôi để chàng đỡ vì tin người hôn phu cũ. Với người lạ, nàng thà chết chứ không chịu phục.
+- Trên người Dạ Lan có **lệnh bài sát thủ khắc chữ Dạ và một đóa hoa lan**. Cảnh Duy nhìn thấy lệnh bài khi bế nàng, suy đoán đây là Dạ Lan của Quy Nguyên Lâu; chàng không biết nàng là Linh Linh.
+- **Chưa chốt:** hình dáng và cách giấu lệnh bài, lời thoại, các động tác cụ thể trong cảnh.
+
 ## Ghi chú y phục
 - **Giá y đỏ** thuộc riêng tình tiết tân nương tử này, không phải y phục nhiệm vụ thường xuyên.
 - Dạ Lan có thể mặc các màu khác tùy nhiệm vụ; **ưa thích nhất tím nhạt màu khói và vàng nhạt**.
