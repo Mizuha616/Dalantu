@@ -11,10 +11,10 @@
 | Sau biến cố | Tiểu Linh chịu huấn luyện khắc nghiệt để trở thành **Dạ Lan, sát thủ của Quy Nguyên Lâu** | ĐÃ CHỐT |
 | Sau biến cố, chưa rõ mốc | Dịch dung và dùng thuốc che giấu thân phận | ĐÃ CHỐT về sự kiện, CHƯA XÁC ĐỊNH về thời điểm |
 | Trong nhiệm vụ giá y đỏ (chưa định mốc) | Cảnh Duy đến giao dịch tình báo, dự hôn lễ; Dạ Lan bí mật giết tham quan, bị thuộc hạ phát cuồng truy sát; **nhìn thấy Cảnh Duy nên thất thần, trúng kiếm chí mạng**, rồi được chàng **đưa về Vô Danh Các cứu chữa** | ĐÃ CHỐT về diễn biến, CHƯA XÁC ĐỊNH vị trí trong niên biểu |
-| Khi tái ngộ | Dạ Lan nhận ra Cảnh Duy; Cảnh Duy chưa biết thân phận thật | ĐÃ CHỐT |
+| Khi tái ngộ, khoảng 15 năm sau biến cố | **Tạ Cảnh Duy 26 tuổi, Dạ Lan / Chu Tiểu Linh 23 tuổi**; Dạ Lan nhận ra Cảnh Duy, nhưng chàng chưa biết thân phận thật | ĐÃ CHỐT |
 | Diễn tiến về sau | Cảnh Duy quan sát và cảm thấy quen thuộc từ ánh mắt nàng | ĐÃ CHỐT về hướng triển khai, CHƯA XÁC ĐỊNH về thời điểm |
 
 ## Còn thiếu
 - Tuổi và thời điểm Cảnh Duy nghe tin Tiểu Linh đã chết.
-- Khoảng cách năm tháng từ diệt môn đến tái ngộ.
+- **Đã chốt:** khoảng **15 năm** từ biến cố diệt môn đến tái ngộ (không tự đặt năm lịch).
 - Thời điểm và nguyên nhân lời thề.
