@@ -44,7 +44,8 @@ Tạ Cảnh Duy và Chu Tiểu Linh từng có hôn ước. Chu gia bị diệt 
 ### Dạ Lan định rời Vô Danh Các ngay sau khi tỉnh — ĐÃ CHỐT
 - Sau khi biết Tạ Cảnh Duy chính là Vô Danh Các chủ, nàng lạnh lùng nói: **“Vậy không phiền Các chủ.”** rồi lập tức bước xuống giường định rời đi.
 - Vì vừa trải qua vết thương chí mạng và vẫn đang hồi phục, **nàng khuỵu xuống ngay khi xuống giường**. Nàng đã đánh giá quá cao sức lực của mình.
-- **Chưa chốt:** lời đáp của Cảnh Duy, cử chỉ đỡ nàng, và diễn biến cụ thể ngay sau cú khuỵu. Đoạn văn thử không được xem là lời thoại canon.
+- **Đã chốt:** Cảnh Duy **bế nàng trở lại giường**; nàng vẫn mạnh miệng nói **“Ta không sao.”** dù vừa khuỵu xuống. Chàng vừa chứng kiến tính ngông cuồng, bướng bỉnh của nàng vừa thấy buồn cười. Dạ Lan còn rất trẻ, **trạc tuổi Chu Tiểu Linh nếu nàng ấy còn sống**, khiến chàng có thể liên tưởng đến vị hôn thê đã mất, nhưng chưa nhận ra thân phận nàng.
+- **Chưa chốt:** lời đáp cụ thể của Cảnh Duy, cử chỉ chi tiết, sắc thái/hồi tưởng nội tâm; bản nháp cảnh không tự trở thành lời thoại canon.
 
 ### Cảnh truy vấn sau khi Dạ Lan tỉnh lại — ĐÃ CHỐT
 - Tạ Cảnh Duy đã điều tra được diễn biến/chân tướng vụ việc đêm hôn lễ, và chất vấn Dạ Lan vì sao giết tên tham quan thay vì giữ hắn sống để moi thông tin, truy ra kẻ giật dây phía sau.
