@@ -14,6 +14,12 @@ Tạ Cảnh Duy và Chu Tiểu Linh từng có hôn ước. Chu gia bị diệt 
 - Sự gần gũi và những quan sát, nhất là ánh mắt, có thể dần khiến chàng nghi ngờ.
 - Tình cảm của nàng vẫn còn, nhưng nàng mong chàng được hạnh phúc.
 
+### Chi tiết nhận diện trong cuộc tái ngộ — ĐÃ CHỐT
+- Dạ Lan từng nghe Vô Danh Các chủ họ Tạ vô cùng thần bí, khó gặp, nhưng không biết người ấy là Tạ Cảnh Duy. Nàng chỉ nhận ra chàng là hôn phu thuở nhỏ khi chàng xuất hiện.
+- Tạ Cảnh Duy từng nghe danh nữ sát thủ Dạ Lan của Quy Nguyên Lâu ngông cuồng, bá đạo, chưa từng gặp mặt. Khi bế nàng bị thương, chàng phát hiện trên người nàng một lệnh bài khắc chữ **Dạ** và hình **hoa lan**; nhờ đó chàng **suy đoán** nàng là Dạ Lan, nhưng không nhận ra Chu Tiểu Linh.
+- Nàng sẵn lòng để Cảnh Duy đỡ/bế không phải vì chịu khuất phục, mà vì đã nhận ra chàng. Với người lạ, nàng thà chết cũng không chịu phục.
+- **Chưa chốt:** hình dáng, chất liệu, vị trí giấu lệnh bài; cách Cảnh Duy bế nàng và lời thoại cụ thể.
+
 ## Tình tiết đã chốt: Nhiệm vụ giá y đỏ
 - **Tạ Cảnh Duy** đến phủ tham quan để giao dịch tình báo, rồi được mời dự hôn lễ.
 - Sau khi tiệc tàn, tân nương đã về tân phòng, khách đã ra về, **Dạ Lan bí mật ám sát và giết được tên tham quan**.
