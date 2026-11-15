@@ -48,6 +48,7 @@
 - **Không sợ hoàng quyền**.
 - **Chung trinh**.
 - **Lạnh lùng, bí ẩn**.
+- **Bình thản trước sinh tử**: ánh mắt tĩnh lặng, như người đã trải qua quá nhiều chuyện; ngay cả cái chết cũng khó khiến nàng lộ vẻ sợ hãi. Không đồng nghĩa với vô cảm. [ĐÃ CHỐT 16/11/2026]
 - **Nói ít làm nhiều**.
 - Thường có những câu nói **thâm sâu**, theo phong cách Linh Linh hay nói.
 - Khi hài hước thì **rất có duyên**.
