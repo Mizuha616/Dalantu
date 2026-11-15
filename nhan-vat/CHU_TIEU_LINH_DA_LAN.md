@@ -53,6 +53,8 @@
 - Câu **“Ta thích giết thì giết thôi.”** là câu đáp ngắn gọn đã chốt cho lần chất vấn vụ ám sát tên tham quan; không nối dài bằng diễn thuyết, vặn hỏi hay đấu khẩu.
 - Đây là nguyên tắc xây dựng lời thoại, không mặc định nàng vô cảm thật sự hay giết người tùy hứng trong mọi tình huống. Động cơ vụ ám sát vẫn chưa chốt.
 
+- **Sự thật về mục tiêu ám sát — ĐÃ CHỐT:** Tên tham quan đã cưỡng ép và sát hại nhiều tân nương là các cô gái nhà lành. Nàng không giải thích điều đó khi Tạ Cảnh Duy truy vấn, để chàng tự điều tra. **Chưa chốt** ai ra lệnh và động cơ chính xác khiến nàng nhận vụ ám sát.
+
 **Nguyên tắc nhất quán:** Không tự biến vẻ kiêu sa thành tính kiêu ngạo; không vì ít nói mà gán nàng vô cảm hoặc thiếu hài hước. Chỉ sử dụng đúng các nét tính cách đã được Linh Linh chốt.
 
 ## Ngoại hình — đôi mắt (ĐÃ CHỐT, 15/11/2026)
