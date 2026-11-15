@@ -1,7 +1,7 @@
 # Tạ Cảnh Duy
 
 **Vai trò:** Nam chính — *Dạ Lan Từ*  
-**Tuổi:** **30** — ĐÃ CHỐT  
+**Tuổi:** **26** — ĐÃ CHỐT  
 **Chức vị:** **Vô Danh Các chủ** — chủ nhân tổ chức thu thập, mua bán thông tin tình báo trong giang hồ — ĐÃ CHỐT  
 **Trạng thái:** Thiết lập ngoại hình được Linh Linh duyệt ngày 15/11/2026; các chi tiết khác theo trạng thái ghi bên dưới.
 
@@ -52,7 +52,7 @@
 - Danh xưng và chức vị không thay đổi nguyên tắc: tính cách của nhân vật giữ nguyên Nguyễn Duy, không tự thêm tính cách kiểu Các chủ.
 
 ### Ký ức về Chu gia — ĐÃ CHỐT
-- Khi **Chu Tiểu Linh 8 tuổi**, **Tạ Cảnh Duy 11 tuổi**: chàng lớn hơn nàng **3 tuổi**. Đến khi hiện tại Cảnh Duy 30 tuổi, quãng cách từ biến cố khoảng **19 năm** (không tự ấn định ngày sinh hay năm lịch).
+- Khi **Chu Tiểu Linh 8 tuổi**, **Tạ Cảnh Duy 11 tuổi**: chàng lớn hơn nàng **3 tuổi**. Đến khi hiện tại Cảnh Duy 26 tuổi, quãng cách từ biến cố khoảng **15 năm** (không tự ấn định ngày sinh hay năm lịch).
 - Từ năm 11 tuổi, chàng **đã biết và ghi nhớ rất rõ đặc điểm di truyền của đôi mắt Chu gia**: đôi mắt nâu thẫm có sắc đỏ ẩn sâu, đặc điểm từng thấy ở Linh Linh thuở nhỏ.
 - Khi quan sát Dạ Lan, ánh mắt tương tự, cộng với việc nàng trạc tuổi Linh Linh nếu còn sống, khiến chàng **phải suy nghĩ, nảy sinh nghi vấn có cơ sở**; chàng **chưa lập tức nhận ra hay kết luận** Dạ Lan chính là Chu Tiểu Linh.
 
