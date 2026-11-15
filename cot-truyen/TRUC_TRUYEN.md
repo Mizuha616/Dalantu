@@ -25,10 +25,11 @@ Tạ Cảnh Duy và Chu Tiểu Linh từng có hôn ước. Chu gia bị diệt 
 - Nàng sẵn lòng để Cảnh Duy đỡ/bế không phải vì chịu khuất phục, mà vì đã nhận ra chàng. Với người lạ, nàng thà chết cũng không chịu phục.
 - **Chưa chốt:** hình dáng, chất liệu, vị trí giấu lệnh bài; cách Cảnh Duy bế nàng và lời thoại cụ thể.
 
-### Cảm xúc không giấu trong ánh mắt — ĐÃ CHỐT
-- Dạ Lan giữ lời thề: **không thừa nhận bằng lời** mình là Chu Tiểu Linh. Tuy nhiên trước Tạ Cảnh Duy, nàng **không giấu ánh mắt yêu thương**; ánh mắt có thể trái ngược giọng điệu lạnh nhạt và lời phủ nhận.
-- Nàng dùng vẻ lạnh lùng, bá đạo và khoảng cách để **bảo vệ chàng khỏi bị cuốn vào ân oán cùng hiểm nguy của con đường sát thủ**. Đây không phải sự hết yêu, cũng không phải cố tình che giấu tình cảm qua ánh mắt.
-- Những lúc nàng im lặng, quay đi khi bị chất vấn chỉ thể hiện từ chối giải thích, **không đồng nghĩa né tránh mọi ánh nhìn hay bịt kín cảm xúc**.
+### Ánh mắt cận tử là ngoại lệ duy nhất — ĐÃ CHỐT (16/11/2026, cập nhật thiết lập cũ)
+- **Chỉ trong khoảnh khắc cận tử sau nhát kiếm chí mạng**, Dạ Lan mới nhìn Tạ Cảnh Duy bằng ánh mắt dịu dàng, yêu thương và mỉm cười; đó là lần duy nhất tình cảm lộ rõ qua ánh nhìn.
+- **Sau khi tỉnh lại**, nàng trở về phong thái **lạnh lùng, xa cách, vô pháp vô thiên với tất cả mọi người, bao gồm Tạ Cảnh Duy**. Không tiếp tục nhìn chàng trìu mến, không hỏi han ân cần bất thường, không gợi chuyện quá khứ hoặc cố tình dẫn chàng đến chân tướng. Nàng ít lời, suy nghĩ khó đoán; hành động và đối thoại không dễ bộc lộ động cơ.
+- **Đôi mắt nâu thẫm có sắc đỏ ẩn sâu** vẫn là dấu hiệu di truyền khách quan khiến Cảnh Duy nghi ngờ; cần phân biệt **màu mắt và năng lực quan sát** với **biểu cảm yêu thương**, vốn đã được nàng che kín trở lại.
+- Vẻ xa cách nhằm **bảo vệ chàng khỏi bị cuốn vào ân oán và hiểm nguy của con đường sát thủ**, không phải vì hết yêu. Sự im lặng của nàng không được người kể chuyện giải thích liên tục thay nàng.
 
 ## Tình tiết đã chốt: Nhiệm vụ giá y đỏ
 - **Tạ Cảnh Duy** đến phủ tham quan để giao dịch tình báo, rồi được mời dự hôn lễ.
