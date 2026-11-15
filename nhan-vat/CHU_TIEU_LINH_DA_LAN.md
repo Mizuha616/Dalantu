@@ -3,6 +3,7 @@
 **Vai trò:** Nữ chính  
 **Tên thật:** Chu Tiểu Linh  
 **Danh xưng:** Dạ Lan  
+**Tuổi khi tái ngộ:** **23 tuổi** — ĐÃ CHỐT  
 **Trạng thái:** Đang xây dựng; những mục ghi ĐÃ CHỐT là canon.
 
 ## Đã chốt
@@ -17,7 +18,7 @@
 
 ### Chênh lệch tuổi với Cảnh Duy — ĐÃ CHỐT
 - Khi Chu Tiểu Linh **8 tuổi**, Tạ Cảnh Duy **11 tuổi**, hơn nàng **3 tuổi**. Cảnh Duy nhớ rất rõ đặc điểm **di truyền đôi mắt Chu gia** từ khi còn bé.
-- Khi tái ngộ, ánh mắt nâu thẫm có sắc đỏ ẩn sâu của Dạ Lan càng khiến Cảnh Duy suy nghĩ, nhưng **chàng vẫn chưa biết nàng là Linh Linh**. Tuổi hiện tại của nàng có thể suy ra khoảng 27 khi chàng 30, tùy mốc sinh nhật cụ thể chưa xác định.
+- Khi tái ngộ, ánh mắt nâu thẫm có sắc đỏ ẩn sâu của Dạ Lan càng khiến Cảnh Duy suy nghĩ, nhưng **chàng vẫn chưa biết nàng là Linh Linh**. Khi tái ngộ, nàng **23 tuổi**, còn Cảnh Duy **26 tuổi**, khoảng **15 năm** sau biến cố Chu gia; mốc ngày sinh và năm lịch cụ thể chưa xác định.
 
 ## Ngoại hình và khí chất — ĐÃ CHỐT (15/11/2026)
 - **Chiều cao:** 1m65.
