@@ -94,6 +94,12 @@ Không mặc định việc chỉ nhìn một lần sẽ sao chép trọn vẹn 
 - Dạ Lan lạnh lùng nói: **“Vậy không phiền Các chủ.”** rồi tự bước xuống giường định rời đi, nhưng lập tức **khuỵu xuống** vì vết thương chí mạng chưa hồi phục. Nàng đánh giá quá cao thể trạng của mình, dù vẫn giữ phong thái kiêu hãnh và ít lời.
 - **Cảnh Duy bế nàng trở lại giường**, nhưng nàng vẫn mạnh miệng nói **“Ta không sao.”** Dạ Lan tự đánh giá mình khỏe hơn thực tế, dù vẫn trọng thương. Cảnh Duy thấy sự bá đạo, bướng bỉnh ấy buồn cười; nàng còn trẻ, **trạc tuổi Linh Linh nếu còn sống**. Chưa chốt lời đáp chính xác của chàng.
 
+### Giới hạn che giấu trước Tạ Cảnh Duy — ĐÃ CHỐT
+- Dạ Lan **chỉ không thừa nhận bằng lời** thân phận Chu Tiểu Linh; **trước mặt Tạ Cảnh Duy, nàng không cố che giấu ánh mắt yêu thương**. Ánh nhìn có thể dịu dàng và chân thành dù lời nói, thái độ bên ngoài vẫn lạnh lùng.
+- Sự lạnh lùng và bá đạo, cùng việc giữ khoảng cách, là cách nàng **tránh để Cảnh Duy vô tình bị cuốn vào ân oán và con đường sát thủ nguy hiểm của mình**, không phải vì hết yêu hay muốn khiến chàng ghét nàng.
+- Việc đôi khi **im lặng nhìn rồi quay mặt đi** trong đối thoại là cách kết thúc truy vấn, **không phải quy tắc nàng tránh ánh mắt Cảnh Duy hay tìm cách giấu tình cảm qua ánh nhìn**.
+- Lời thề không nhận thân vẫn ràng buộc; không tự chốt cách hóa giải hay những kẻ thù cụ thể.
+
 ## Chưa xác định
 - Danh tính thế lực đứng sau huyết án; **đã biết người bắt cóc là Dạ Hành**, sát thủ nhất đẳng của Quy Nguyên Lâu, nhưng chưa biết động cơ thực sự, hành trình sau khi bị bắt và người ra lệnh huấn luyện nàng; nguyên nhân và điều kiện lời thề.
 - Võ công, nhiệm vụ, thứ bậc của nàng trong **Quy Nguyên Lâu**.
