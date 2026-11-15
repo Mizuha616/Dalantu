@@ -47,6 +47,12 @@
 - Thường có những câu nói **thâm sâu**, theo phong cách Linh Linh hay nói.
 - Khi hài hước thì **rất có duyên**.
 
+### Nguyên tắc đối thoại và ứng xử — ĐÃ CHỐT
+- Dạ Lan **lạnh lùng, ít nói, vô pháp vô thiên**: không giải thích, biện minh hoặc tranh cãi về cách hành xử chỉ để người khác hiểu hay đồng tình.
+- Khi bị Tạ Cảnh Duy truy hỏi, nàng có thể chỉ **im lặng nhìn chàng rồi quay mặt đi**, kết thúc đối thoại về phía mình.
+- Câu **“Ta thích giết thì giết thôi.”** là câu đáp ngắn gọn đã chốt cho lần chất vấn vụ ám sát tên tham quan; không nối dài bằng diễn thuyết, vặn hỏi hay đấu khẩu.
+- Đây là nguyên tắc xây dựng lời thoại, không mặc định nàng vô cảm thật sự hay giết người tùy hứng trong mọi tình huống. Động cơ vụ ám sát vẫn chưa chốt.
+
 **Nguyên tắc nhất quán:** Không tự biến vẻ kiêu sa thành tính kiêu ngạo; không vì ít nói mà gán nàng vô cảm hoặc thiếu hài hước. Chỉ sử dụng đúng các nét tính cách đã được Linh Linh chốt.
 
 ## Ngoại hình — đôi mắt (ĐÃ CHỐT, 15/11/2026)
