@@ -32,7 +32,8 @@
 - Dạ Lan cải trang thành tân nương tử của một tên tham quan, chờ tiệc tàn, vào tân phòng và **hành thích thành công tên tham quan**.
 - Nàng giao chiến trong tân phòng với thuộc hạ nam cao lớn, vạm vỡ, võ công thượng thừa, thực lực ngang cơ.
 - Nàng **vô tình đánh trúng huyệt vị** kích hoạt trạng thái điên cuồng liên quan khả năng khống chế của hắn (cơ chế chưa chốt). Hắn tàn sát người trong phủ rồi truy sát nàng ra sân; chênh lệch thể lực dồn nàng vào thế thập tử nhất sinh.
-- Tạ Cảnh Duy nghe động xông vào thăm dò. **Dạ Lan bắt gặp ánh mắt chàng, mất tập trung và trúng một nhát kiếm chí mạng.**
+- Tạ Cảnh Duy nghe động xông vào thăm dò. **Dạ Lan bắt gặp ánh mắt chàng, mất tập trung và trúng một nhát kiếm chí mạng.** Sau đó nàng nhìn chàng, máu trào khóe môi nhưng vẫn mỉm cười bi thương, buông bỏ, giải thoát, lòng nghĩ **“Cuối cùng cũng gặp lại chàng.”**
+- Tuy bị trọng thương, **nàng vẫn gắng gượng trợ kiếm cho Cảnh Duy** khi chàng giao chiến với tên thuộc hạ phát cuồng. **Chỉ sau khi cả hai thực sự giết được hắn**, nàng mới buông kiếm, nhắm mắt; chưa chốt chiêu thức và ai kết liễu.
 - **Sau đó Cảnh Duy đưa nàng về Vô Danh Các cứu chữa**; chàng chưa biết nàng là Chu Tiểu Linh.
 - Chưa chốt cách nàng được cứu chữa, số phận tên thuộc hạ, diễn biến tiếp sau và bí mật của Vô Danh Các.
 
@@ -70,7 +71,7 @@ Không mặc định việc chỉ nhìn một lần sẽ sao chép trọn vẹn 
 ### Tái ngộ và lệnh bài — ĐÃ CHỐT
 - Dạ Lan có nghe danh **Vô Danh Các chủ họ Tạ** nhưng không biết người ấy chính là **Tạ Cảnh Duy**; khi gặp lại, nàng chỉ nhận ra hôn phu thuở nhỏ.
 - Nàng mang trên người **lệnh bài sát thủ khắc chữ Dạ và một đóa hoa lan**; Cảnh Duy trông thấy khi bế nàng, từ đó suy đoán nàng là Dạ Lan của Quy Nguyên Lâu.
-- Nàng để Cảnh Duy đỡ/bế khi trọng thương vì đã nhận ra và tin chàng. Nếu là người lạ, nàng thà chết chứ không khuất phục.
+- Khi trận chiến đã chấm dứt, nàng để Cảnh Duy đỡ/bế lúc trọng thương vì đã nhận ra và tin chàng. **Điều này không có nghĩa nàng buông kiếm trước khi kẻ địch bị hạ**; trong khi chàng còn chiến đấu, nàng vẫn gắng gượng trợ kiếm. Nếu là người lạ, nàng thà chết chứ không khuất phục.
 - Chưa xác định hình thức, vị trí giấu lệnh bài và lời thoại cụ thể.
 
 ## Chưa xác định
