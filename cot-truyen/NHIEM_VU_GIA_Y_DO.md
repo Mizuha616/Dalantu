@@ -19,6 +19,11 @@
 - Trên người Dạ Lan có **lệnh bài sát thủ khắc chữ Dạ và một đóa hoa lan**. Cảnh Duy nhìn thấy lệnh bài khi bế nàng, suy đoán đây là Dạ Lan của Quy Nguyên Lâu; chàng không biết nàng là Linh Linh.
 - **Chưa chốt:** hình dáng và cách giấu lệnh bài, lời thoại, các động tác cụ thể trong cảnh.
 
+### Nụ cười sau nhát kiếm — ĐÃ CHỐT
+- Sau nhát kiếm chí mạng, Dạ Lan nhìn Tạ Cảnh Duy và cười: nụ cười **bi thương, buông bỏ, giải thoát**, ánh mắt đầy yêu thương, máu đỏ tươi trào từ khóe môi, nhuộm cả hàm răng trắng. Nàng không biết mình có chết hay không, nhưng yên lòng vì chàng còn sống và đã lớn lên khỏe mạnh.
+- Câu nội tâm/hàm ý được chọn: **“Cuối cùng cũng gặp lại chàng.”**
+- **Chưa chốt:** Cách Tạ Cảnh Duy giải quyết tên đối thủ phát cuồng vẫn còn sống sau khi đâm nàng; phương án chàng giao đấu và hạ sát đối thủ mới là **đề xuất**, chưa được xác nhận.
+
 ## Ghi chú y phục
 - **Giá y đỏ** thuộc riêng tình tiết tân nương tử này, không phải y phục nhiệm vụ thường xuyên.
 - Dạ Lan có thể mặc các màu khác tùy nhiệm vụ; **ưa thích nhất tím nhạt màu khói và vàng nhạt**.
