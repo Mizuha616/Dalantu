@@ -1,5 +1,5 @@
 # Dạ Lan Từ
-## Chương 1 — Cuối cùng cũng gặp lại chàng
+## Chương 1 — Tái ngộ
 
 **Trạng thái: BẢN NHÁP — CHỜ DUYỆT**
 
@@ -63,9 +63,9 @@ Tạ Cảnh Duy.
 
 Duy ca ca của nàng.
 
-Mười chín năm.
+Mười lăm năm.
 
-Nàng đã sống qua mười chín năm không có tin tức rõ ràng về chàng. Có những ký ức bị năm tháng mài nhạt, có những cái tên nàng buộc mình không được nhắc tới. Nhưng gương mặt ấy, dù đã không còn dáng vẻ thiếu niên năm xưa, nàng vẫn nhận ra ngay trong một cái nhìn.
+Nàng đã sống qua mười lăm năm không có tin tức rõ ràng về chàng. Có những ký ức bị năm tháng mài nhạt, có những cái tên nàng buộc mình không được nhắc tới. Nhưng gương mặt ấy, dù đã không còn dáng vẻ thiếu niên năm xưa, nàng vẫn nhận ra ngay trong một cái nhìn.
 
 Chàng còn sống.
 
@@ -373,7 +373,7 @@ Linh Linh.
 
 Cái tên cũ vừa hiện lên, lòng chàng thoáng trầm xuống.
 
-Mười chín năm trước, Chu gia gặp đại nạn. Người ta nói nàng đã chết. Chàng cũng đã mang niềm tin ấy theo suốt từng ấy năm.
+Mười lăm năm trước, Chu gia gặp đại nạn. Người ta nói nàng đã chết. Chàng cũng đã mang niềm tin ấy theo suốt từng ấy năm.
 
 Thế nhưng trước mắt chàng bây giờ là Dạ Lan của Quy Nguyên Lâu.
 
@@ -523,7 +523,7 @@ Chàng lại nhớ nữ tử trong giá y.
 
 Nhớ máu ở khóe môi, nhớ nụ cười không có chút oán trách, nhớ đôi mắt nhìn mình dịu dàng đến mức không giống một người xa lạ.
 
-Rồi đôi mắt ấy xuất hiện lần nữa trong ký ức, chồng lên hình ảnh một bé gái đã mất từ mười chín năm trước.
+Rồi đôi mắt ấy xuất hiện lần nữa trong ký ức, chồng lên hình ảnh một bé gái đã mất từ mười lăm năm trước.
 
 Cảnh Duy im lặng rất lâu.
 
