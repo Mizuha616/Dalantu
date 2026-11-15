@@ -69,6 +69,11 @@
 - Khi đỡ/bế nữ sát thủ trọng thương, chàng nhìn thấy lệnh bài trên người nàng khắc chữ **Dạ** và hình **hoa lan**, từ đó **suy đoán** nàng là Dạ Lan của Quy Nguyên Lâu. Chàng **không nhận ra** nàng chính là Chu Tiểu Linh.
 - Dạ Lan chỉ biết danh tiếng một Các chủ họ Tạ hành tung thần bí, **chưa biết** Cảnh Duy chính là Vô Danh Các chủ.
 
+### Thái độ với Dạ Lan khi mới tỉnh — ĐÃ CHỐT
+- Khi nàng vừa biết chàng là Các chủ, lạnh lùng đòi rời đi rồi lập tức khuỵu xuống, **Cảnh Duy bế nàng trở lại giường**. Nàng vẫn nói **“Ta không sao.”**
+- Cảnh Duy vừa được chứng kiến sự ngông cuồng, bướng bỉnh của nàng, vừa thấy buồn cười. Nàng rất trẻ, **trạc tuổi Chu Tiểu Linh nếu nàng ấy còn sống**; điều này có thể gợi chàng nhớ đến người cũ nhưng **chàng chưa nhận ra Dạ Lan là Linh Linh**.
+- Chưa chốt lời đáp cụ thể của chàng và chi tiết hồi tưởng.
+
 ## Chưa xác định
 
 - Thân thế chi tiết, gia tộc, sư môn, thời điểm trở thành Các chủ và các chức phận khác (nếu có).
