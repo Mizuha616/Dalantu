@@ -10,7 +10,8 @@
 5. Trong lúc giao chiến, Dạ Lan **vô tình đánh trúng một huyệt vị liên quan đến khả năng khống chế của tên thuộc hạ**, khiến hắn **phát cuồng**. Cơ chế chính xác của huyệt vị và trạng thái này chưa chốt.
 6. Hắn **tàn sát người trong nhà tên tham quan** và **truy sát Dạ Lan ra đến giữa sân**. Chênh lệch về thể lực, cùng sự điên cuồng của hắn, dồn nàng vào tình thế **thập tử nhất sinh**.
 7. Tạ Cảnh Duy **nghe tiếng động, xông vào thăm dò**. Chàng bắt gặp cuộc chiến; **chỉ vì một ánh mắt hướng về chàng**, Dạ Lan **mất tập trung và trúng một nhát kiếm chí mạng**.
-8. **Về sau, Tạ Cảnh Duy đưa Dạ Lan về Vô Danh Các cứu chữa**. Chàng chưa biết nàng chính là Chu Tiểu Linh; đôi mắt nâu thẫm ẩn ánh đỏ khiến chàng cảm thấy quen thuộc.
+8. Sau khi trúng kiếm chí mạng, Dạ Lan vẫn cố gắng **trợ kiếm cho Tạ Cảnh Duy** khi chàng đang giao chiến với tên thuộc hạ. **Chỉ khi hai người thực sự giết được hắn**, nàng mới buông kiếm và nhắm mắt.
+9. **Về sau, Tạ Cảnh Duy đưa Dạ Lan về Vô Danh Các cứu chữa**. Chàng chưa biết nàng chính là Chu Tiểu Linh; đôi mắt nâu thẫm ẩn ánh đỏ khiến chàng cảm thấy quen thuộc.
 
 ### Chi tiết cuộc tái ngộ — ĐÃ CHỐT
 - Dạ Lan biết có một Vô Danh Các chủ họ Tạ nhưng chưa biết đó là Tạ Cảnh Duy; khi thấy chàng, nàng chỉ nhận ra vị hôn phu năm xưa.
@@ -22,7 +23,8 @@
 ### Nụ cười sau nhát kiếm — ĐÃ CHỐT
 - Sau nhát kiếm chí mạng, Dạ Lan nhìn Tạ Cảnh Duy và cười: nụ cười **bi thương, buông bỏ, giải thoát**, ánh mắt đầy yêu thương, máu đỏ tươi trào từ khóe môi, nhuộm cả hàm răng trắng. Nàng không biết mình có chết hay không, nhưng yên lòng vì chàng còn sống và đã lớn lên khỏe mạnh.
 - Câu nội tâm/hàm ý được chọn: **“Cuối cùng cũng gặp lại chàng.”**
-- **Chưa chốt:** Cách Tạ Cảnh Duy giải quyết tên đối thủ phát cuồng vẫn còn sống sau khi đâm nàng; phương án chàng giao đấu và hạ sát đối thủ mới là **đề xuất**, chưa được xác nhận.
+- **Đã chốt:** tên đối thủ phát cuồng vẫn còn sống sau khi đâm nàng, và Tạ Cảnh Duy giao chiến với hắn. Dạ Lan bị thương chí mạng nhưng vẫn gắng gượng **trợ kiếm cho Cảnh Duy**. **Sau khi kẻ địch thực sự bị giết**, nàng mới buông kiếm và nhắm mắt.
+- **Chưa chốt:** những đòn kiếm cụ thể, ai ra đòn kết liễu, thời điểm và tư thế Cảnh Duy đỡ/bế nàng.
 
 ## Ghi chú y phục
 - **Giá y đỏ** thuộc riêng tình tiết tân nương tử này, không phải y phục nhiệm vụ thường xuyên.
@@ -30,7 +32,7 @@
 
 ## Bí mật và chi tiết CHƯA CHỐT
 - Danh tính tham quan, thuộc hạ; địa điểm cụ thể và thời điểm trong trục truyện.
-- Cơ chế huyệt vị, tại sao kích hoạt trạng thái điên cuồng; kết cục của tên thuộc hạ.
+- Cơ chế huyệt vị, tại sao kích hoạt trạng thái điên cuồng; **đã chốt kết cục tên thuộc hạ là bị giết**, nhưng chưa chốt cách bị hạ.
 - Cảnh Duy can thiệp giao chiến ra sao, quá trình đưa nàng rời phủ, vết thương cụ thể và phương pháp cứu chữa.
 - **Vô Danh Các không chỉ kinh doanh tin tức**, nhưng tổ chức còn những bí mật hay chức năng gì chưa được tiết lộ.
 - Khoảnh khắc Cảnh Duy xác nhận thân phận thật của nàng, và diễn biến quan hệ về sau.
