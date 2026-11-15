@@ -41,6 +41,11 @@ Tạ Cảnh Duy và Chu Tiểu Linh từng có hôn ước. Chu gia bị diệt 
 - Dạ Lan lạnh lẽo nhìn Cảnh Duy, vô cảm đáp đúng lời thoại: **“Ta thích giết thì giết thôi.”**
 - Sự lạnh lùng này tiếp nối việc nàng phải giấu thân phận thật vì lời thề. **Chưa chốt** lý do thực sự khiến mục tiêu phải chết, mức độ điều tra cụ thể của Cảnh Duy, phản ứng/lời thoại tiếp sau của chàng.
 
+### Sự thật về tên tham quan — ĐÃ CHỐT
+- Tên tham quan bị Dạ Lan giết đã **cưỡng ép và sát hại nhiều tân nương là các cô gái nhà lành**.
+- Dạ Lan không giải thích hay biện minh khi Cảnh Duy chất vấn. Vô Danh Các có năng lực tự điều tra; Cảnh Duy tiếp tục lần theo và biết được những tội ác của hắn thay vì đòi lời thú nhận từ nàng.
+- Cần phân biệt điều tra diễn biến đêm hôn lễ (đã có khi chàng chất vấn nàng) với phát hiện lịch sử cưỡng ép, sát hại các tân nương trước đó. Chi tiết chứng cứ, thời điểm tìm ra và động cơ nhận nhiệm vụ của Dạ Lan vẫn chưa chốt.
+
 ## Chưa chốt
 - Điểm mở đầu, mục tiêu bề mặt của từng nhân vật.
 - Xung đột chính trên giang hồ, phe đối địch.
