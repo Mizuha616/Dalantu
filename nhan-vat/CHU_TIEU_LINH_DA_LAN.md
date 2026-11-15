@@ -86,6 +86,10 @@ Không mặc định việc chỉ nhìn một lần sẽ sao chép trọn vẹn 
 - Tỉnh lại sau khi được cứu, Dạ Lan hỏi đây là nơi nào, rồi mới biết người hôn phu năm xưa đã trở thành **chủ Vô Danh Các**; trước đó nàng chỉ nghe danh một Các chủ họ Tạ hành tung thần bí. Thời điểm phát hiện là **trước cuộc chất vấn về tên tham quan**.
 - Nàng tiếp tục giấu thân phận thật và giữ thái độ lạnh lùng. Lời thoại cụ thể và biểu hiện nội tâm chưa chốt.
 
+### Phản ứng ngay sau khi biết thân phận Các chủ — ĐÃ CHỐT
+- Dạ Lan lạnh lùng nói: **“Vậy không phiền Các chủ.”** rồi tự bước xuống giường định rời đi, nhưng lập tức **khuỵu xuống** vì vết thương chí mạng chưa hồi phục. Nàng đánh giá quá cao thể trạng của mình, dù vẫn giữ phong thái kiêu hãnh và ít lời.
+- Chưa chốt động tác và lời đáp cụ thể của Cảnh Duy khi nàng khuỵu xuống.
+
 ## Chưa xác định
 - Danh tính thế lực đứng sau huyết án; **đã biết người bắt cóc là Dạ Hành**, sát thủ nhất đẳng của Quy Nguyên Lâu, nhưng chưa biết động cơ thực sự, hành trình sau khi bị bắt và người ra lệnh huấn luyện nàng; nguyên nhân và điều kiện lời thề.
 - Võ công, nhiệm vụ, thứ bậc của nàng trong **Quy Nguyên Lâu**.
