@@ -5,6 +5,7 @@
 | Thời điểm | Sự kiện | Trạng thái |
 |---|---|---|
 | Thuở nhỏ, trước biến cố | Tạ Cảnh Duy và Chu Tiểu Linh có hôn ước | ĐÃ CHỐT |
+| Khi Chu Tiểu Linh 8 tuổi, Tạ Cảnh Duy 11 tuổi | Hai người cách nhau **3 tuổi**; Cảnh Duy đã biết và ghi nhớ rõ đặc điểm **di truyền đôi mắt Chu gia**, từng nhìn thấy ở Tiểu Linh | ĐÃ CHỐT |
 | Khi Chu Tiểu Linh 8 tuổi | Chu gia bị diệt môn do **thế lực đứng sau lo ngại các quốc gia/phe phái khác sẽ lợi dụng năng lực đôi mắt cho mục tiêu chính trị**; có người bị móc mắt, mắt dùng làm vật trang trí, **không còn năng lực nếu người sở hữu đã chết** | ĐÃ CHỐT về sự kiện và động cơ được nêu; thủ phạm cụ thể chưa chốt |
 | Ngay ngày diệt môn | **Dạ Hành**, sát thủ nhất đẳng **Quy Nguyên Lâu**, bắt cóc Tiểu Linh | ĐÃ CHỐT; chưa rõ cứu hay lợi dụng |
 | Sau biến cố | Tiểu Linh chịu huấn luyện khắc nghiệt để trở thành **Dạ Lan, sát thủ của Quy Nguyên Lâu** | ĐÃ CHỐT |
