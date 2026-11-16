@@ -8,6 +8,8 @@
 - **Ngay trong ngày Chu gia bị diệt môn**, đã **bắt cóc Chu Tiểu Linh** khi nàng tám tuổi.
 - **Dạ Hành cùng Dạ Thiên trực tiếp huấn luyện võ công cho Dạ Lan**. Dạ Lan bị huấn luyện/hành xác khắc nghiệt, ép dùng thuốc và trải qua dịch dung đau đớn, thành mỹ nhân phục vụ các mục tiêu nhiệm vụ. **Nàng không hề tin tưởng Dạ Hành**, và cũng không tin Quy Nguyên Lâu. Không lãng mạn hóa đây là dưỡng dục hoặc ân nghĩa sư đồ.
 
+- **Quan hệ với Dạ Lan — ĐÃ CHỐT 17/11/2026:** Dạ Lan không tin và không sợ Dạ Hành. Nàng có một phần kính trọng ông nhưng không nhiều; quan hệ mang tính cấp trên–cấp dưới, mức phục tùng được tác giả mô tả **khoảng 50%**, song **tỷ lệ hoàn thành nhiệm vụ cao**. Ông rèn nàng thành sát thủ sẵn sàng chết vì nhiệm vụ. **Nếu** ông truy sát nàng, nàng sẵn sàng đấu sinh tử; điều kiện giả định này **không đồng nghĩa đã chốt ông sẽ truy sát nàng**. Không hiểu 50% là một tỷ lệ đo lường chính xác hoặc bằng chứng nàng cố ý thất bại nhiệm vụ.
+
 ## Chưa xác định
 - Động cơ thực sự: **cứu nàng hay lợi dụng nàng**.
 - Mức độ trực tiếp thực hiện từng lần dịch dung/ép thuốc, người ra mệnh lệnh cho mỗi thủ thuật, các bước và mục đích cụ thể của từng đợt (ngoài việc biến nhân dạng phục vụ nhiệm vụ).
