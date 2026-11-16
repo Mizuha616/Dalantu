@@ -25,6 +25,7 @@
 - Dạ Lan vừa là **sư muội**, vừa là **đồng môn**, vừa là **người chàng thề sống chết bảo vệ**.
 - Dạ Thiên **yêu Dạ Lan**, quan tâm nàng sâu sắc nhưng không thể công khai theo đuổi, bởi tổ chức không cho sát thủ có yếu điểm.
 - Nếu có thể, **chàng muốn mang nàng đi trốn** khỏi Quy Nguyên Lâu; đây là **mong muốn của nhân vật**, không đồng nghĩa đã có kế hoạch trốn cụ thể hoặc đã nói ra lời ấy.
+- **Dạ Thiên không biết Dạ Lan đã yêu Tạ Cảnh Duy từ nhỏ**, cũng không biết chuyện **hôn ước/hôn thư thuở nhỏ** giữa Chu Tiểu Linh và Tạ Cảnh Duy; không viết hắn đã biết đối thủ là vị hôn phu của nàng.
 - **Dạ Lan biết rất rõ chàng yêu nàng.** Thỉnh thoảng **khi say, Dạ Thiên từng hôn Dạ Lan**; tác giả chưa xác định chi tiết từng lần, phản ứng cụ thể hay sự đồng thuận tại các thời điểm ấy. **Việc đã hôn không có nghĩa nàng cho phép hắn tiến xa/vượt giới hạn**. Không dùng rượu say làm lý do mặc nhiên coi hành vi được đồng ý.
 
 ## Đầu chương 3 — ĐÃ CHỐT MỤC TIÊU, CHƯA CHỐT CẢNH
