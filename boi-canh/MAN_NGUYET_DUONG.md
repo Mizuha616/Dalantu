@@ -21,6 +21,7 @@
 - Nàng **ngâm mình, thưởng rượu** tại cơ nghiệp của mình. **Tối cùng ngày**, **Cảnh Duy bất ngờ nhắc nàng uống thuốc** khi thương tích chưa hoàn toàn hồi phục.
 - **Chưa chốt** chàng nhắc thuốc bằng phương tiện nào, có đích thân tới không, có thấy nàng đang tắm không (không mặc định có), hoặc chi nhánh/địa điểm cụ thể. Không đưa lời thoại hài hước lúc thảo luận vào canon nếu tác giả chưa duyệt.
 
+- **TẠ CẢNH DUY NHẬN RA NỖI BUỒN — TÁC GIẢ CHỐT:** Chàng **tai thính**, nghe được Dạ Lan **vừa khóc vừa cười**, nên **biết nàng đang mang tâm sự**. Không viết Cảnh Duy hoàn toàn không biết nàng khóc; cũng không cho chàng đoán ra nguyên nhân cụ thể hoặc thân phận Chu Tiểu Linh chỉ nhờ tiếng khóc. Chàng ở bên ngoài phòng tắm, không tự ý xâm phạm chốn riêng tư.
 - **CHI TIẾT ĐƯỢC TÁC GIẢ BỔ SUNG — 17/11/2026:** Dạ Lan **vẫn đang ngâm mình trong bồn** khi uống rượu, vừa cười vừa khóc. Nàng **hắt hơi**; một giọng Tạ Cảnh Duy từ **bên ngoài** nhắc: **“Không nên vừa khỏi bệnh đã ngâm người uống rượu.”** Nàng hỏi: **“Ngươi chưa đi sao?”** Điều này có nghĩa nàng **tưởng chàng đã rời đi nhưng chàng vẫn ở gần hoặc trở lại**, chưa chốt cách thức. Giữ quyền riêng tư: không tự viết chàng xông vào hay nhìn nàng tắm. Hai câu thoại là đề xuất cụ thể của tác giả để sử dụng khi viết, còn cách dựng cảnh chi tiết chưa phải văn bản chương chính thức.
 
 ## Chưa chốt — KHÔNG tự sáng tác
