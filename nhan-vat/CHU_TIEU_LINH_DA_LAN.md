@@ -10,11 +10,12 @@
 - Thuở nhỏ có hôn ước với **Tạ Cảnh Duy**.
 - **Năm 8 tuổi**, gia tộc nàng bị diệt môn.
 - **Trong ngày diệt môn**, nàng bị **Dạ Hành**, sát thủ nhất đẳng của **Quy Nguyên Lâu**, bắt cóc. **Chưa rõ** người này muốn cứu nàng hay lợi dụng nàng.
-- Sau biến cố, nàng bị đưa vào quá trình huấn luyện sát thủ cực kỳ khắc nghiệt tại **Quy Nguyên Lâu**, tổ chức sát thủ mà nàng thuộc về. **Vô Danh Các là tổ chức mua bán tình báo của Tạ Cảnh Duy, không phải nơi huấn luyện nàng**. Chưa xác định ai trực tiếp phụ trách huấn luyện.
-- Nàng bị **ép uống thuốc và trải qua dịch dung thuật trong nhiều năm** để che giấu thân phận; chưa chốt thuốc và dịch dung làm thay đổi những gì cụ thể.
+- Sau biến cố, nàng bị đưa vào quá trình huấn luyện sát thủ cực kỳ khắc nghiệt tại **Quy Nguyên Lâu**, tổ chức sát thủ mà nàng thuộc về. **Dạ Hành và đệ tử thứ mười hai Dạ Thiên cùng huấn luyện võ công cho nàng**; Dạ Thiên chứng kiến những lần nàng chịu đau đớn vì dịch dung. **Vô Danh Các là tổ chức mua bán tình báo của Tạ Cảnh Duy, không phải nơi huấn luyện nàng**.
+- Nàng bị **ép uống thuốc và trải qua dịch dung thuật đau đớn trong nhiều năm** để che giấu nhân dạng, đồng thời **bị dịch dung thành một đại mỹ nhân phục vụ các mục tiêu nhiệm vụ**. Chưa chốt cơ chế từng lần dịch dung, thuốc tác động cụ thể ra sao. Đây là sự cưỡng ép, không mô tả như một món quà sắc đẹp.
 - Khi tái ngộ, nàng **nhận ra Tạ Cảnh Duy**, nhưng chàng vẫn tin Tiểu Linh đã chết.
 - Nàng có lời thề **giấu thân phận đến chết**.
 - Nàng vẫn yêu chàng, nhưng chỉ mong chàng được hạnh phúc.
+- **ĐÃ CHỐT 17/11/2026:** Dạ Lan **chưa từng tin tưởng Quy Nguyên Lâu và cũng không tin sư phụ Dạ Hành**. Không gán cho nàng lòng biết ơn vì bị bắt cóc, hành xác, ép dịch dung để phục vụ nhiệm vụ. Việc nàng nhận nhiệm vụ không đồng nghĩa trung thành với tổ chức.
 
 ### Chênh lệch tuổi với Cảnh Duy — ĐÃ CHỐT
 - Khi Chu Tiểu Linh **8 tuổi**, Tạ Cảnh Duy **11 tuổi**, hơn nàng **3 tuổi**. Cảnh Duy nhớ rất rõ đặc điểm **di truyền đôi mắt Chu gia** từ khi còn bé.
