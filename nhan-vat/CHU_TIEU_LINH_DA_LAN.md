@@ -50,6 +50,8 @@
 - **Không** giả định ngày hôm sau nàng sẽ chủ động xác nhận tình cảm, đòi hôn lại hoặc tiếp tục theo đuổi Các chủ. Cách phản ứng sau khi tỉnh và cảnh thân mật cụ thể **chưa chốt**.
 - Vẫn bảo đảm quyền quyết định, ranh giới riêng tư và sự đồng thuận; không tự coi việc say là cho phép mọi hành động thân mật.
 
+- **Khả năng khi say do tác giả gợi ý:** Dạ Lan có thể chủ động đến mức **kéo Tạ Cảnh Duy lên giường nếu chàng không cản**, nhưng sáng hôm sau tỉnh táo lại **bình thản phủ nhận/ứng xử như không có chuyện gì**. Đây là **khả năng giả định phản ánh tính cách hai mặt**, không xác nhận việc thân mật đã xảy ra; lời thoại và hành động cụ thể chưa chốt. Không dùng rượu say để hợp thức hóa vượt qua ranh giới đồng thuận.
+
 ## Ngôn hành khi say — ĐÃ CHỐT 17/11/2026
 - Dạ Lan **ít lời, lạnh lùng và bá đạo** ngay cả khi có rượu; **khi say lại rất bạo, táo bạo trong hành động**, không biến thành người nói nhiều, đấu khẩu dai dẳng hay ngượng ngùng trẻ con.
 - Trong cảnh tối ở Mãn Nguyệt Đường, lúc Các chủ nhắc uống thuốc, tác giả gợi ý nàng có thể chỉ nói đúng một chữ **“Cút”** rồi **tiếp tục uống rượu**, không thèm đôi co. Đây là **phương án thoại đang thử**, chưa phải câu văn chính thức của chương 3.
