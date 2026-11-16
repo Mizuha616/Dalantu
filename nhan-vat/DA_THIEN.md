@@ -18,13 +18,14 @@
 ## Quan hệ hai chiều — ĐÃ CHỐT
 ### Dạ Lan → Dạ Thiên
 - Nàng xem Dạ Thiên là **huynh**, **tri kỷ đồng sinh cộng tử**, người đã ngầm che chở cùng mình.
-- **Không phải tình nhân.** Dạ Lan yêu **Tạ Cảnh Duy**. Không tự thêm chuyện nàng đáp lại tình yêu của Dạ Thiên hoặc có tình cảm lãng mạn hai chiều.
+- **Không phải tình nhân.** Dạ Lan yêu **Tạ Cảnh Duy**, và **biết rất rõ Dạ Thiên yêu mình**. Nàng trân trọng tình nghĩa huynh đệ/tri kỷ nhưng **không cho phép hắn vượt qua ranh giới nàng đặt ra**. Không tự viết họ thành cặp tình nhân ở hiện tại.
+- **Giả định do tác giả nêu:** Nếu Dạ Lan **không gặp lại Tạ Cảnh Duy**, **Dạ Thiên có thể đã có cơ hội** tiến xa hơn; đây là khả năng, **không phải kết quả đã định hay tình cảm thực tế hiện tại**.
 
 ### Dạ Thiên → Dạ Lan
 - Dạ Lan vừa là **sư muội**, vừa là **đồng môn**, vừa là **người chàng thề sống chết bảo vệ**.
 - Dạ Thiên **yêu Dạ Lan**, quan tâm nàng sâu sắc nhưng không thể công khai theo đuổi, bởi tổ chức không cho sát thủ có yếu điểm.
 - Nếu có thể, **chàng muốn mang nàng đi trốn** khỏi Quy Nguyên Lâu; đây là **mong muốn của nhân vật**, không đồng nghĩa đã có kế hoạch trốn cụ thể hoặc đã nói ra lời ấy.
-- **Chưa chốt** Dạ Lan đã nhận biết rõ tình cảm đơn phương này đến đâu.
+- **Dạ Lan biết rất rõ chàng yêu nàng.** Thỉnh thoảng **khi say, Dạ Thiên từng hôn Dạ Lan**; tác giả chưa xác định chi tiết từng lần, phản ứng cụ thể hay sự đồng thuận tại các thời điểm ấy. **Việc đã hôn không có nghĩa nàng cho phép hắn tiến xa/vượt giới hạn**. Không dùng rượu say làm lý do mặc nhiên coi hành vi được đồng ý.
 
 ## Đầu chương 3 — ĐÃ CHỐT MỤC TIÊU, CHƯA CHỐT CẢNH
 - Sau **năm ngày** Dạ Lan dưỡng thương tại Vô Danh Các, Dạ Thiên đến nơi để **đưa nàng về Quy Nguyên Lâu chịu hỏi tội** vì đã giết Tống Hoài Lễ thay vì bắt sống theo lệnh.
@@ -36,7 +37,7 @@
 ## Không được tự suy diễn
 - Không tự xác quyết Dạ Thiên là phản diện, là tình địch hằn học, hay bất tài vì không cứu nổi sư muội ngày trước.
 - Không lãng mạn hóa vụ tra tấn hoặc gọi sự cưỡng ép của Quy Nguyên Lâu là ân nghĩa nuôi dưỡng.
-- Không tự thêm tình tay ba có hồi đáp từ Dạ Lan.
+- Không tự thêm tình tay ba có hồi đáp từ Dạ Lan ở hiện tại; khả năng nếu không tái ngộ Cảnh Duy chỉ là **giả định của tác giả**, không chuyển thành sự kiện đã xảy ra.
 - Không mặc định cả hai đã hoàn toàn quy phục tổ chức sau thủy lao; chỉ **thay đổi phương thức sống sót, âm thầm che chở nhau**.
 
 **Liên kết:** `ghi-chu/METADATA_CANON_01_03.md`; `cot-truyen/MOI_QUAN_HE.md`; `nhan-vat/CHU_TIEU_LINH_DA_LAN.md`.
