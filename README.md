@@ -22,3 +22,7 @@ Kho tư liệu chính thức dành riêng cho dự án truyện võ hiệp **D�
 Tạ Cảnh Duy và Chu Tiểu Linh có hôn ước thuở nhỏ. Sau biến cố diệt môn khi nàng tám tuổi, Tiểu Linh bị Dạ Hành của Quy Nguyên Lâu bắt cóc, rồi trở thành sát thủ mang danh Dạ Lan trong tổ chức này. **Vô Danh Các** do Tạ Cảnh Duy làm chủ là tổ chức chuyên thu thập, mua bán thông tin tình báo trong giang hồ, không phải tổ chức đào tạo sát thủ. Khi tái ngộ, nàng nhận ra chàng nhưng phải giấu thân phận; Cảnh Duy tin Tiểu Linh đã chết.
 
 > Các trang bên trong chỉ ghi lại những chi tiết đã được nhắc đến, chưa tự điền phần thế giới hay lịch sử chưa chốt.
+
+## Chỉ mục metadata và kiểm tra tính liên tục
+- **Đọc trước khi bàn hoặc viết chương 3:** [Metadata canon chương 1–3](ghi-chu/METADATA_CANON_01_03.md). Tài liệu này gom diễn biến của hai chương chính thức, dữ kiện tác giả vừa chốt cho chương 3, bảng tri thức nhân vật và các điểm cần đối chiếu.
+- **Văn bản được duyệt:** [Chương 1 — Tái ngộ](chuong/Chuong_01.md), [Chương 2 — Trâm mai](chuong/Chuong_02.md). Không tự sửa hai chương đã duyệt; khi phát hiện xung đột với thiết lập mới phải đánh dấu trước và đợi tác giả duyệt.
