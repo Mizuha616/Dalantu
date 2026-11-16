@@ -17,6 +17,12 @@
 - Nàng vẫn yêu chàng, nhưng chỉ mong chàng được hạnh phúc.
 - **ĐÃ CHỐT 17/11/2026:** Dạ Lan **chưa từng tin tưởng Quy Nguyên Lâu và cũng không tin sư phụ Dạ Hành**. Không gán cho nàng lòng biết ơn vì bị bắt cóc, hành xác, ép dịch dung để phục vụ nhiệm vụ. Việc nàng nhận nhiệm vụ không đồng nghĩa trung thành với tổ chức.
 
+### Cơ nghiệp riêng và đường lui — ĐÃ CHỐT 17/11/2026
+- Dạ Lan đã **tự xây dựng và điều hành Mãn Nguyệt Đường** bằng **tiền riêng**: một **tửu lâu nổi tiếng, có nhiều chi nhánh**.
+- Cơ nghiệp này **kinh doanh hợp pháp, kiếm tiền sạch và có đóng thuế**, đồng thời đóng vai trò **gần giống một nơi thu thập tin tức** của riêng nàng.
+- Mãn Nguyệt Đường là **đường lui nếu nàng thôi làm sát thủ**: nàng có thể tự duy trì cuộc sống, không mặc định phải nhờ sự bảo hộ hoặc tài sản của nam chính/nam phụ.
+- **Chưa chốt** nàng có dự định đến Mãn Nguyệt Đường ngay khi rời Vô Danh Các hoặc dùng nó vào kế hoạch đang giữ kín. Hồ sơ: `boi-canh/MAN_NGUYET_DUONG.md`.
+
 ### Chênh lệch tuổi với Cảnh Duy — ĐÃ CHỐT
 - Khi Chu Tiểu Linh **8 tuổi**, Tạ Cảnh Duy **11 tuổi**, hơn nàng **3 tuổi**. Cảnh Duy nhớ rất rõ đặc điểm **di truyền đôi mắt Chu gia** từ khi còn bé.
 - Khi tái ngộ, ánh mắt nâu thẫm có sắc đỏ ẩn sâu của Dạ Lan càng khiến Cảnh Duy suy nghĩ, nhưng **chàng vẫn chưa biết nàng là Linh Linh**. Khi tái ngộ, nàng **23 tuổi**, còn Cảnh Duy **26 tuổi**, khoảng **15 năm** sau biến cố Chu gia; mốc ngày sinh và năm lịch cụ thể chưa xác định.
