@@ -21,6 +21,12 @@
 - Khi Chu Tiểu Linh **8 tuổi**, Tạ Cảnh Duy **11 tuổi**, hơn nàng **3 tuổi**. Cảnh Duy nhớ rất rõ đặc điểm **di truyền đôi mắt Chu gia** từ khi còn bé.
 - Khi tái ngộ, ánh mắt nâu thẫm có sắc đỏ ẩn sâu của Dạ Lan càng khiến Cảnh Duy suy nghĩ, nhưng **chàng vẫn chưa biết nàng là Linh Linh**. Khi tái ngộ, nàng **23 tuổi**, còn Cảnh Duy **26 tuổi**, khoảng **15 năm** sau biến cố Chu gia; mốc ngày sinh và năm lịch cụ thể chưa xác định.
 
+### Quan hệ với sư phụ Dạ Hành — ĐÃ CHỐT 17/11/2026
+- Dạ Lan **không tin và không sợ Dạ Hành**. Nàng có **một phần kính trọng, nhưng không nhiều**, xem ông theo quan hệ cấp trên–cấp dưới hơn là người thân.
+- Theo cách tác giả mô tả, **mức phục tùng chỉ khoảng 50%**, nhưng **tỷ lệ hoàn thành nhiệm vụ lại cao**. Con số 50% biểu đạt tính độc lập/chọn lọc tuân lệnh, **không phải thống kê hay quy tắc cố định cho từng nhiệm vụ**.
+- Ông đã huấn luyện nàng thành sát thủ **sẵn sàng chết vì nhiệm vụ**; nếu có ngày ông **truy sát nàng**, nàng **sẵn sàng giao chiến sinh tử**. Đây là một khả năng giả định, **không chốt rằng cuộc truy sát xảy ra**.
+- Không viết nàng sợ sư phụ, xem ép dịch dung là ân nghĩa, hoặc tự động quy phục vì quan hệ sư đồ.
+
 ## Ngoại hình và khí chất — ĐÃ CHỐT (15/11/2026)
 - **Chiều cao:** 1m65.
 - **Đôi tay:** Bàn tay với **những ngón tay thon nhỏ, trắng ngần**.
