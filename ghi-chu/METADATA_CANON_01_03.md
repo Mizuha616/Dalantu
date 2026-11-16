@@ -89,7 +89,7 @@ Bản Google Docs được tìm thấy:
 |---|---|---|---|---|
 | Dạ Lan chính là Chu Tiểu Linh | **Biết** | **Nghi ngờ, CHƯA XÁC NHẬN** | **Không biết** | **Biết** từ truyện |
 | Tạ Cảnh Duy là Vô Danh Các chủ | **Biết** sau khi tỉnh | **Biết** | Chưa rõ mức độ hiểu về chàng | Biết |
-| Đại Mai là tỷ tỷ quen biết thuở nhỏ | **Biết Đại Mai trong quá khứ**; có nhận ra trâm nhưng không nhận ở lời nói — động cơ không kể rõ | **Biết** sau điều tra cuối chương 2 | Chưa rõ | Biết |
+| Đại Mai là tỷ tỷ quen biết thuở nhỏ | **Biết Đại Mai trong quá khứ**; nhìn trâm rất lâu nhưng nói “Không quen”, truyện chưa xác nhận điều nàng thực sự nghĩ | **Biết** sau điều tra cuối chương 2 | Chưa rõ | Biết |
 | Tống Hoài Lễ và La Trọng Sơn đã chết | **Biết họ chết trong cuộc chiến** | **Biết** | Chưa xác định đã được báo đầy đủ thế nào | **Biết** |
 | Mục tiêu nhiệm vụ gốc là bắt sống Tống để lấy thủ pháp | **Biết** | **Chưa rõ, KHÔNG MẶC ĐỊNH BIẾT** | **Biết lệnh và trách nhiệm đưa nàng về** | **Chưa được tiết lộ trong hai chương** |
 | La Trọng Sơn là quái nhân thành công | Chưa rõ | Chưa rõ | Chưa rõ | Chưa được tiết lộ trong hai chương |
