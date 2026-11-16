@@ -15,6 +15,11 @@
 - **Dạ Thiên — ĐÃ CHỐT:** **Không biết** Dạ Lan **bí mật đứng sau và điều hành Mãn Nguyệt Đường**, bất chấp mười lăm năm gắn bó cùng nàng. Đây là một **bất lợi thông tin** khi so với Tạ Cảnh Duy, người đã biết bí mật này.
 - **Tạ Cảnh Duy — ĐÃ CHỐT:** Vô Danh Các **đã điều tra và nắm được Dạ Lan chính là người đứng sau Mãn Nguyệt Đường ngay từ trước khi Tạ Cảnh Duy biết dung mạo Dạ Lan**. Sau khi gặp nàng, nghe nàng nói muốn rời Vô Danh Các, **Cảnh Duy lập tức biết/đoán đúng nàng sẽ đến Mãn Nguyệt Đường**. Đây là năng lực tình báo sẵn có của chàng, không phải việc nàng thú nhận chủ quyền tửu lâu. **Chàng vẫn chưa biết Dạ Lan chính là Chu Tiểu Linh.** Chưa xác lập chàng biết cụ thể chi nhánh/địa chỉ nào.
 
+## Cảnh dự kiến chương 3 — TÁC GIẢ CHỐT CÁC NHỊP
+- Trong khi **Tạ Cảnh Duy và Dạ Thiên giao chiến**, Dạ Lan **thi triển khinh công rời Vô Danh Các, về Mãn Nguyệt Đường**.
+- Nàng **ngâm mình, thưởng rượu** tại cơ nghiệp của mình. **Tối cùng ngày**, **Cảnh Duy bất ngờ nhắc nàng uống thuốc** khi thương tích chưa hoàn toàn hồi phục.
+- **Chưa chốt** chàng nhắc thuốc bằng phương tiện nào, có đích thân tới không, có thấy nàng đang tắm không (không mặc định có), hoặc chi nhánh/địa điểm cụ thể. Không đưa lời thoại hài hước lúc thảo luận vào canon nếu tác giả chưa duyệt.
+
 ## Chưa chốt — KHÔNG tự sáng tác
 - Vị trí tổng đường và từng chi nhánh; số lượng chi nhánh; món ăn, phong cách kiến trúc, nhân viên hoặc chức danh quản lý.
 - Vô Danh Các và Cảnh Duy **đã biết chủ nhân đứng sau tửu lâu là Dạ Lan**, nhưng chưa chốt **người ngoài khác** biết tới đâu, nàng dùng tên gì khi kinh doanh, tổ chức sát thủ có biết hoặc kiểm soát cơ nghiệp này không. Tin tức về danh xưng **Dạ Lan** không đồng nghĩa biết thân phận thật **Chu Tiểu Linh**.
