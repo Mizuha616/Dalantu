@@ -20,5 +20,14 @@
 - **Ánh mắt và lý do giữ khoảng cách — ĐÃ CHỐT, cập nhật 16/11/2026:** **Ánh nhìn yêu thương và nụ cười lúc cận tử sau nhát kiếm là ngoại lệ duy nhất.** Sau khi được cứu tỉnh lại, Dạ Lan **giữ vẻ lạnh lùng, xa cách, vô pháp vô thiên với tất cả mọi người, kể cả Tạ Cảnh Duy**. Nàng không để lộ tình yêu qua ánh mắt hay sự chăm sóc ân cần, không gợi chuyện cũ, không tự giải thích nội tâm; lời nói ít, tâm tư khó đoán. Sự xa cách là để **không kéo chàng vào ân oán, hiểm nguy của đời sát thủ**, không phải vì hết tình. **Màu mắt nâu thẫm có sắc đỏ ẩn sâu** vẫn là dấu hiệu huyết thống giúp Cảnh Duy có cơ sở nghi ngờ, không đồng nghĩa nàng nhìn chàng trìu mến.
 - **Điều chưa rõ:** Tình cảm hiện thời của Cảnh Duy, cơ chế lời thề, hướng hóa giải; chàng biết đến đâu về thân phận sát thủ của Dạ Lan trong **Quy Nguyên Lâu** và quan hệ giữa hai tổ chức.
 
+## Dạ Thiên ↔ Dạ Lan — ĐÃ CHỐT 17/11/2026
+- **Đồng môn:** Dạ Thiên là đệ tử thứ mười hai của Dạ Hành, cùng Dạ Hành huấn luyện Dạ Lan khi nàng bị bắt cóc mang về từ năm tám tuổi.
+- **Từng bảo vệ:** Khi còn nhỏ, Dạ Thiên đã phản đối việc tổ chức ép Dạ Lan thành mỹ sát nhân, đòi công đạo cho sư muội; vì vậy bị **giam ba tháng thủy lao và tra tấn**, nhưng sống sót.
+- **Sau biến cố:** Cả hai không còn chống đối công khai như trước, mà **ngầm bảo vệ nhau** qua những tháng ngày gian nan; điều này không đồng nghĩa Dạ Lan tin Quy Nguyên Lâu hoặc luôn tuân lệnh.
+- **Dạ Lan nhìn Dạ Thiên:** Là **huynh**, **tri kỷ đồng sinh cộng tử**, **không phải tình nhân**. Nàng yêu Tạ Cảnh Duy.
+- **Dạ Thiên nhìn Dạ Lan:** Vừa là **sư muội, đồng môn**, vừa là **người đã thề sống chết bảo vệ**. Hắn yêu nàng, không thể công khai theo đuổi vì luật của Quy Nguyên Lâu; nếu có thể muốn đưa nàng đi trốn. **Chưa chốt** nàng đã nhận ra tình cảm ấy chưa.
+- **Ngoại hình Dạ Thiên:** Tác giả xác nhận **rất đẹp trai**, chưa chốt các nét và tuổi cụ thể.
+- **Chương 3:** Dạ Thiên đến Vô Danh Các vừa để thi hành lệnh đưa Dạ Lan về hỏi tội, vừa để tự mình bảo vệ nàng khỏi người áp giải khác. Cảnh đối thoại chưa chốt.
+
 ## Quan hệ khác
-Chưa được thiết lập.
+Chưa được thiết lập thêm.
