@@ -15,6 +15,11 @@
 - **Dạ Thiên — ĐÃ CHỐT:** **Không biết** Dạ Lan **bí mật đứng sau và điều hành Mãn Nguyệt Đường**, bất chấp mười lăm năm gắn bó cùng nàng. Đây là một **bất lợi thông tin** khi so với Tạ Cảnh Duy, người đã biết bí mật này.
 - **Tạ Cảnh Duy — ĐÃ CHỐT:** Vô Danh Các **đã điều tra và nắm được Dạ Lan chính là người đứng sau Mãn Nguyệt Đường ngay từ trước khi Tạ Cảnh Duy biết dung mạo Dạ Lan**. Sau khi gặp nàng, nghe nàng nói muốn rời Vô Danh Các, **Cảnh Duy lập tức biết/đoán đúng nàng sẽ đến Mãn Nguyệt Đường**. Đây là năng lực tình báo sẵn có của chàng, không phải việc nàng thú nhận chủ quyền tửu lâu. **Chàng vẫn chưa biết Dạ Lan chính là Chu Tiểu Linh.** Chưa xác lập chàng biết cụ thể chi nhánh/địa chỉ nào.
 
+## Lãnh địa và sự tự do của Dạ Lan — TÁC GIẢ CHỐT 17/11/2026
+- Mãn Nguyệt Đường là **nơi Dạ Lan không sợ ai và có thể sống đúng bản chất**; không bị buộc phải đóng vai nữ sát thủ lạnh lùng, không phải giữ mặt nạ khi buồn, vui hay say.
+- **Khi say ở đây, nàng rất táo bạo**. Sự chủ động có thể tương phản với năm ngày gắng che giấu tâm tư ở Vô Danh Các; cảm xúc thật đêm ấy gồm **vừa cười vừa khóc**.
+- Ý tưởng nàng **mời Tạ Cảnh Duy vào phòng khi còn ngâm mình** mới ở mức thảo luận; phản ứng của chàng và hành động sau đó **chưa chốt**. Không tự gán thêm chuyện thân mật dựa riêng vào trạng thái say.
+
 ## Cảnh dự kiến chương 3 — TÁC GIẢ CHỐT CÁC NHỊP
 - Trong khi **Tạ Cảnh Duy và Dạ Thiên giao chiến**, Dạ Lan **thi triển khinh công rời Vô Danh Các, về Mãn Nguyệt Đường**.
 - **SẮC THÁI CẢNH — TÁC GIẢ CHỈNH RÕ:** Sau khi rời cuộc giao chiến, **đêm ở Mãn Nguyệt Đường là cảnh cô độc, đau đớn**, không phải màn vui đùa. Dạ Lan uống rượu cho quên sầu; năm ngày ở Vô Danh Các nàng cố giữ bình thản trước Cảnh Duy, dù từ lúc gặp chàng đến khi thấy **di vật Đại Mai** đã muốn khóc. **Đêm ấy nàng khóc thật: nước mắt cứ rơi, nàng vừa cười vừa khóc, càng say lại càng cười; không sướt mướt hay than vãn**. Nàng đau vì bị tước quyền sống cho chính mình. Nàng **tưởng Các chủ đã rời đi**, không định đuổi theo, nhưng khi nàng **hắt hơi trong bồn**, giọng chàng lại vang lên ở ngoài; chàng **chưa đi xa hoặc đã quay lại**, chưa chốt cách nào. Không diễn giải tiếng cười là vô tư vui vẻ, cũng không nói nàng không thể khóc. Chưa chốt độc thoại và tiểu tiết của cảnh.
