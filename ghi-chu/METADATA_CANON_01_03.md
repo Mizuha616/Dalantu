@@ -69,7 +69,8 @@ Bản Google Docs được tìm thấy:
 - **Dạ Thiên** là **đệ tử thứ 12** của Dạ Hành, đã ở trong môn lúc Chu Tiểu Linh 8 tuổi được đưa về. Dạ Thiên và Dạ Hành **cùng huấn luyện võ công cho Dạ Lan**. Chàng chứng kiến những lần dịch dung đau đớn của nàng.
 - Dạ Thiên lâu nay quan tâm và yêu Dạ Lan, nhưng Quy Nguyên Lâu **không cho phép sát thủ có yếu điểm**, nên chàng **không thể công khai theo đuổi**. Chưa xác định Dạ Lan có biết tình cảm này hay không; không tự tạo quan hệ yêu đương hai chiều.
 - **Dạ Thiên không biết thân thế Chu Tiểu Linh**; chỉ **Dạ Hành** nắm thông tin này. Các đệ tử **bị cấm công khai điều tra thân phận đồng môn**, nhưng lệnh cấm được dùng cả để bảo vệ bí mật và thử thách năng lực ngầm điều tra. Dạ Thiên *có thể* truy xét nhưng rất khó vì gia tộc nàng đã bị huyết tẩy; **không tự nói rằng hắn đã tra ra**.
-- Việc Dạ Hành mang Tiểu Linh khỏi vụ diệt môn có mục đích sâu xa **chưa rõ**. Không gọi đó là ân cứu mạng vô điều kiện hoặc khẳng định ông ta có liên hệ với thủ phạm.
+- **QUAN HỆ SƯ ĐỒ — TÁC GIẢ CHỐT:** Dạ Lan **không tin Dạ Hành**, cũng **không hề tin Quy Nguyên Lâu**. Dạ Hành đã bắt cóc nàng khi 8 tuổi và tham gia quá trình huấn luyện/hành xác khắc nghiệt. Nàng bị ép trải qua **dịch dung đau đớn để trở thành mỹ nhân dùng cho các mục tiêu nhiệm vụ**. Việc này là sự cưỡng ép và công cụ hóa con người, **không gọi là nuôi dưỡng ân cần hoặc ân nghĩa sư đồ**. Dạ Thiên cùng tham gia huấn luyện, chứng kiến sự đau đớn của nàng; chưa tự phán quyết trách nhiệm, mức độ chống đối hoặc thông đồng riêng của hắn nếu tác giả chưa nêu.
+- Việc Dạ Hành mang Tiểu Linh khỏi vụ diệt môn có mục đích sâu xa **chưa rõ**. Không gọi đó là ân cứu mạng vô điều kiện hoặc khẳng định ông ta có liên hệ với thủ phạm. Việc không biết mục đích ban đầu không làm nhẹ đi các hành vi bắt cóc và cưỡng ép đã chốt.
 
 ## 5. Cốt truyện chương 3 đang thảo luận [TÁC GIẢ CHỐT, CHƯA VIẾT]
 
@@ -106,7 +107,7 @@ Bản Google Docs được tìm thấy:
 
 1. **ĐÃ GIẢI THÍCH — KHÔNG CẦN COI LÀ MÂU THUẪN CỐT TRUYỆN:** Chương 1 có câu **“Nhiệm vụ của nàng vốn đã hoàn thành”** sau khi Tống Hoài Lễ chết. Tác giả đã phân biệt: **lệnh Quy Nguyên Lâu = bắt sống để tra hỏi**; **mục tiêu Dạ Lan tự đặt ra = giết để trả thù riêng**. Vì vậy câu văn có thể hiểu theo góc nhìn/mục tiêu của Dạ Lan; không tự sửa bản chương đã duyệt. Nếu biên tập sau này cần làm rõ giọng kể thì phải đợi tác giả cho phép.
 2. **ĐÃ GIẢI QUYẾT — Mốc 5 ngày:** Theo tác giả, “vài ngày” ở chương 2 có thể hiểu là **3 ngày**, rồi **2 ngày sau** cảnh trâm = **5 ngày**. Chương 3 mở sau năm ngày dưỡng thương là phù hợp, không cần sửa hai chương trước. Giữ cách nói tương đối trong văn bản chính thức.
-3. **Hồ sơ cũ chưa kịp cập nhật:** `nhan-vat/DA_HANH.md`, `boi-canh/QUY_NGUYEN_LAU.md`, `nhan-vat/CHU_TIEU_LINH_DA_LAN.md` còn viết “chưa rõ ai trực tiếp huấn luyện”, “chưa rõ người sáng lập”, v.v. Phần **tác giả mới xác nhận** ở metadata này phải được đối chiếu trước khi viết, nhưng không tự sửa/ghi đè các hồ sơ cũ.
+3. **Hồ sơ khác có thể chưa cập nhật toàn bộ:** Đối chiếu mục 4 ở đây với `boi-canh/QUY_NGUYEN_LAU.md` và các hồ sơ cũ có những câu “chưa xác định”, đặc biệt cơ cấu tổ chức, huấn luyện và động cơ. Hồ sơ Dạ Hành và Dạ Lan đã được bổ sung riêng về việc nàng không tin sư phụ và sự cưỡng ép dịch dung; không biến điều chưa rõ thành chi tiết tự suy đoán.
 4. **Đại Mai và động cơ:** Chương 2 tạo đủ manh mối để độc giả hiểu lý do Dạ Lan giết Tống; **không tự thêm một lời thú tội hoặc xác nhận Dạ Lan đã điều tra/vật lộn tâm lý ra sao** khi chưa có cảnh do tác giả duyệt.
 5. **Tương quan 2 tổ chức:** Không tự nói Vô Danh Các và Quy Nguyên Lâu là đồng minh hay thù địch truyền kiếp. Việc Dạ Thiên đến gọi người về **không tự động đồng nghĩa đã có chiến tranh**.
 
