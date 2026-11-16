@@ -68,6 +68,16 @@ Tạ Cảnh Duy và Chu Tiểu Linh từng có hôn ước. Chu gia bị diệt 
 - Dạ Lan không giải thích hay biện minh khi Cảnh Duy chất vấn. Vô Danh Các có năng lực tự điều tra; Cảnh Duy tiếp tục lần theo và biết được những tội ác của hắn thay vì đòi lời thú nhận từ nàng.
 - Cần phân biệt điều tra diễn biến đêm hôn lễ (đã có khi chàng chất vấn nàng) với phát hiện lịch sử cưỡng ép, sát hại các tân nương trước đó. Chi tiết chứng cứ, thời điểm tìm ra và động cơ nhận nhiệm vụ của Dạ Lan vẫn chưa chốt.
 
+
+### Hồ sơ án Tống Hoài Lễ và cảnh chương 2 — ĐÃ CHỐT (16/11/2026)
+- **Tống Hoài Lễ (宋懷禮)** là tên viên quan tham đã bị Dạ Lan giết trong đêm cưới ở chương 1. Hắn cưỡng ép và sát hại nhiều tân nương. Cần giữ tương phản giữa cái tên nho nhã với hành vi tội ác.
+- **La Trọng Sơn (羅重山)** là thủ hạ thân tín, cao lớn, võ công ngang cơ Dạ Lan trước khi phát cuồng; chính là kẻ đối chiến với Dạ Lan và Tạ Cảnh Duy rồi chết trong chương 1. Hắn **biết, giúp che giấu nhiều vụ sát hại tân nương và trực tiếp xử lý thi thể** cho Tống Hoài Lễ.
+- **Giếng cạn trong phủ Tống Hoài Lễ** là nơi La Trọng Sơn giấu xác các nạn nhân; lúc bị phát hiện, xương trắng đã chất thành đống.
+- Vụ án chấn động, **đến tai quan phủ**. Người của **Vô Danh Các đến trước**, thu gom, chăm lo việc đưa thi thể/hài cốt và di vật các cô nương ra khỏi giếng; ngỏ ý sẽ **tìm thân nhân và lo chôn cất**. **Quan phủ đại nhân Lưu Viễn Trí** đồng ý với đề nghị đó. Chưa chốt chức danh hành chính cụ thể và các động cơ/thâm tình của vị quan này.
+- **Vài ngày sau cảnh đầu chương 2**, Dạ Lan ngoan ngoãn dưỡng thương tại Vô Danh Các trong khi Tạ Cảnh Duy tiếp tục tìm ra nhiều manh mối từ án Tống Hoài Lễ. Khi đi dạo loanh quanh trong Vô Danh Các, nàng **vô tình bước vào thư phòng Tạ Cảnh Duy**.
+- Trên bàn có nhiều **di vật của các tân nương**, trong đó nổi bật **một chiếc trâm gỗ khắc hoa mai, vẫn dính vết máu đã khô**. Dạ Lan **không đụng vào chiếc trâm**, chỉ **đứng nhìn nó rất lâu**. **Không giải thích lý do** nàng nhìn, không suy diễn đây là đồ của ai hoặc liên quan đến ký ức nào cho tới khi tác giả chốt.
+- **Chương 2 vẫn đang dựng sườn; chưa được duyệt thành chương văn xuôi.** Không lấy bản nháp chương 2 cũ làm canon; các lời thoại tiếp sau và việc người khác có phát hiện nàng đứng đó hay không đều chưa chốt.
+
 ## Chưa chốt
 - Điểm mở đầu, mục tiêu bề mặt của từng nhân vật.
 - Xung đột chính trên giang hồ, phe đối địch.
