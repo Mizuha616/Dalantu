@@ -17,6 +17,7 @@
 
 ## Cảnh dự kiến chương 3 — TÁC GIẢ CHỐT CÁC NHỊP
 - Trong khi **Tạ Cảnh Duy và Dạ Thiên giao chiến**, Dạ Lan **thi triển khinh công rời Vô Danh Các, về Mãn Nguyệt Đường**.
+- **SẮC THÁI CẢNH — TÁC GIẢ CHỐT:** Dù trước đó trốn khỏi hai người đang giao chiến có nét hài hước, **đêm uống rượu là một cảnh cô độc, đau đớn**. Dạ Lan muốn **uống cho quên sầu**, suốt năm ngày bên Cảnh Duy đã **gắng đóng vai lạnh lùng** để che nỗi lòng. Từ lúc tái ngộ chàng đến lúc thấy **di vật Đại Mai**, nàng muốn khóc nhưng **không thể khóc**, đau vì **không được sống cho chính mình**. Sau khi Các chủ nhắc thuốc và **rời đi**, nàng **không đuổi theo**; chỉ tiếp tục tự gặm nhấm nỗi buồn. Chưa chốt hành động/độc thoại cụ thể khác.
 - Nàng **ngâm mình, thưởng rượu** tại cơ nghiệp của mình. **Tối cùng ngày**, **Cảnh Duy bất ngờ nhắc nàng uống thuốc** khi thương tích chưa hoàn toàn hồi phục.
 - **Chưa chốt** chàng nhắc thuốc bằng phương tiện nào, có đích thân tới không, có thấy nàng đang tắm không (không mặc định có), hoặc chi nhánh/địa điểm cụ thể. Không đưa lời thoại hài hước lúc thảo luận vào canon nếu tác giả chưa duyệt.
 
