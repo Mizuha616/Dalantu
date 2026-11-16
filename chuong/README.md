@@ -10,4 +10,4 @@ Khu vực lưu bản nháp, bản đã duyệt và lịch sử chỉnh sửa cá
 
 ## Tình trạng các chương
 - `Chuong_01.md` — **ĐÃ DUYỆT** (16/11/2026), *Tái ngộ*.
-- `Chuong_02.md` — **BẢN NHÁP, CHƯA DUYỆT**; chỉ dùng để tham khảo, tiếp tục lập sườn cùng Linh Linh trước khi viết chương chính thức.
+- `Chuong_02.md` — **ĐÃ DUYỆT** (16/11/2026), *Trâm mai*.
