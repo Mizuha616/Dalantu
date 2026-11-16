@@ -405,7 +405,7 @@ Mười lăm năm trước, con ngõ ấy thường có tiếng trẻ con chạy
 
 Cảnh Duy nhớ có một lần Tiểu Linh chạy quá nhanh, suýt vấp trên bậc cửa. Đại Mai đứng gần đó kịp đỡ lấy nàng, vừa phủi bụi trên tay áo cô bé vừa cười:
 
-“Linh Linh, muội chậm một chút. Duy ca ca của muội có chạy mất đâu.”
+“Linh Linh, muội chậm một chút. Cảnh Duy có chạy mất đâu.”
 
 Tiểu Linh lúc ấy mới tám tuổi, còn chàng mười một.
 
