@@ -37,3 +37,7 @@
 - Mọi liên hệ tình báo, hợp tác hoặc đối đầu với Vô Danh Các, Quy Nguyên Lâu đều phải được tác giả quyết định.
 
 **Liên kết:** `ghi-chu/METADATA_CANON_01_03.md`, `nhan-vat/CHU_TIEU_LINH_DA_LAN.md`, `boi-canh/VO_DANH_CAC.md`, `boi-canh/QUY_NGUYEN_LAU.md`.
+
+## An toàn trong vòng tay người thương — TÁC GIẢ CHỐT 17/11/2026
+- Ở **Mãn Nguyệt Đường**, khi nằm trong vòng tay **Tạ Cảnh Duy, người nàng yêu nhất**, Dạ Lan có thể **hoàn toàn buông bỏ lo lắng và phòng bị**. Điểm này làm rõ tính chất mái nhà/chốn nương náu của nàng, không chỉ là cơ nghiệp kinh doanh.
+- Hình ảnh nàng vô thức đáp “Duy ca ca” khi Cảnh Duy khẽ gọi “Tiểu Linh” trong giấc ngủ **đang là đề xuất cho chương 3**, chưa phải tình tiết đã duyệt. Không tự nâng lên thành việc Cảnh Duy xác nhận thân phận.
