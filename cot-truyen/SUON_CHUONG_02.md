@@ -31,12 +31,15 @@
 - Trên bàn chàng là nhiều **di vật của các tân nương** được người của Vô Danh Các thu về.
 - Trong số đó có **một chiếc trâm gỗ khắc hoa mai**, **dính vết máu khô**.
 - Dạ Lan **không chạm vào bất cứ thứ gì**, chỉ đứng nhìn **chiếc trâm** rất lâu.
-- **Tuyệt đối chưa nói rõ nàng biết gì, nghĩ gì, đã từng gặp chiếc trâm chưa, trâm thuộc về ai và vì sao nàng nhìn lâu.** Để độc giả quan sát và tự nghi vấn. Không tự viết độc thoại nội tâm, không để vẻ mặt nàng lộ ra sự xúc động khác thường.
+- **Cảnh Duy bước vào thư phòng**, thấy nàng đứng trước chiếc trâm, hỏi nguyên văn: **“Chiếc trâm ấy nhìn quen sao?”** Dạ Lan đáp: **“Không quen.”** rồi **quay đầu bỏ ra ngoài**. Nàng không giải thích, không bộc lộ cảm xúc, không chạm vào di vật. Cảnh Duy chưa biết trâm của ai ở thời điểm này.
+- **Mãi về sau**, qua điều tra, Cảnh Duy xác định **chủ chiếc trâm là Đại Mai**, một người **hàng xóm cũ của cả Cảnh Duy và Chu Tiểu Linh**, từng vui vẻ, tốt bụng, thường chơi cùng hai đứa khi còn nhỏ (được hai người gọi là tỷ tỷ). Đại Mai cũng bị sát hại trong chuỗi vụ tân nương của Tống Hoài Lễ.
+- Phát hiện này khiến **Cảnh Duy bàng hoàng, đau xót** vì người tỷ tỷ hay cười năm xưa lại chết trong hoàn cảnh ấy; đồng thời chàng **càng nghi ngờ Dạ Lan** vì sự chú ý khác thường của nàng đối với chiếc trâm. **Đây vẫn chỉ là nghi vấn**, không đủ chứng minh nàng là Chu Tiểu Linh, và không có lời thú nhận từ Dạ Lan.
+- **Tiết lộ theo trình tự:** lúc ở thư phòng, độc giả chỉ thấy chiếc trâm và lời phủ nhận; tên Đại Mai cùng mối liên hệ thời thơ ấu được hé lộ **sau cuộc điều tra của Cảnh Duy**, không giải thích hộ tâm tư nàng trước thời điểm ấy.
 
 ## Chưa chốt cho lần thảo luận kế tiếp
 
-- Khi Dạ Lan đứng trong thư phòng, có ai bước tới hoặc phát hiện nàng không?
-- Câu thoại và phản ứng tiếp theo (nếu có) sau khi nàng nhìn chiếc trâm.
-- Cách dẫn vào cảnh phát hiện giếng cạn, nhịp tiết lộ hồ sơ vụ án và điểm dừng chương 2.
+- Khoảng cách thời gian cụ thể từ cảnh thư phòng tới lúc Cảnh Duy tra ra Đại Mai và trình tự báo tin.
+- Chi tiết nhận dạng/ghi tên chủ chiếc trâm trong hồ sơ, cũng như số phận gia đình Đại Mai.
+- Điểm dừng chương 2 (có hé lộ Đại Mai ngay cuối chương hay dành cho chương sau?) và lời thoại/những hành động chưa được tác giả cung cấp.
 
 **Quy tắc:** Không viết hoặc ghi đè thành chương chính thức trước khi Linh Linh duyệt sườn.
