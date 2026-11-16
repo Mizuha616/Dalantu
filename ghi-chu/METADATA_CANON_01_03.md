@@ -67,7 +67,9 @@ Bản Google Docs được tìm thấy:
 - **Dạ Hành** là **đệ nhất sát thủ** trong Quy Nguyên Lâu (các hồ sơ trước ghi “sát thủ nhất đẳng”), **không mặc định là người sáng lập hoặc người đứng đầu toàn tổ chức**.
 - Dưới trướng Dạ Hành có **13 sát thủ là đệ tử ruột**; chữ **Dạ** ở đầu danh xưng chỉ nhánh sư phụ. Ví dụ nhân vật về sau **Bạch Chỉ** thuộc nhánh có sư phụ họ Bạch. Không tự suy đoán tên, cấp bậc 11 người còn lại.
 - **Dạ Thiên** là **đệ tử thứ 12** của Dạ Hành, đã ở trong môn lúc Chu Tiểu Linh 8 tuổi được đưa về. Dạ Thiên và Dạ Hành **cùng huấn luyện võ công cho Dạ Lan**. Chàng chứng kiến những lần dịch dung đau đớn của nàng.
-- Dạ Thiên lâu nay quan tâm và yêu Dạ Lan, nhưng Quy Nguyên Lâu **không cho phép sát thủ có yếu điểm**, nên chàng **không thể công khai theo đuổi**. Chưa xác định Dạ Lan có biết tình cảm này hay không; không tự tạo quan hệ yêu đương hai chiều.
+- **TIỀN SỬ DẠ THIÊN — TÁC GIẢ CHỐT:** Khi còn nhỏ, Dạ Thiên chứng kiến Quy Nguyên Lâu ép Dạ Lan dịch dung đau đớn thành mỹ sát nhân phục vụ các mục tiêu nhiệm vụ. Chàng **từng đứng ra ngăn cản và đòi công đạo** cho sư muội, kết quả **bị giam ba tháng trong thủy lao, chịu tra tấn nhưng sống sót**. Về sau **hai người không còn chống đối công khai như trước, mà âm thầm che chở nhau** vượt qua những tháng năm gian nan. Điều này **không phủ định** Dạ Lan về sau vẫn có lựa chọn chống lệnh kín đáo và không tin tổ chức.
+- **QUAN HỆ HAI CHIỀU:** Với **Dạ Lan**, Dạ Thiên là **huynh và tri kỷ đồng sinh cộng tử**, **không phải tình nhân**, bởi nàng yêu Tạ Cảnh Duy. Với **Dạ Thiên**, nàng vừa là sư muội, đồng môn, vừa là **người chàng thề sống chết bảo vệ**; hắn yêu nàng và **mong được đưa nàng trốn khỏi tổ chức nếu có thể**, song Quy Nguyên Lâu không cho sát thủ có yếu điểm nên chàng không công khai theo đuổi. **Chưa chốt** Dạ Lan đã biết tình cảm đơn phương ấy ở mức nào.
+- **NGOẠI HÌNH DẠ THIÊN — TÁC GIẢ CHỐT:** rất đẹp trai; tuổi, nét mặt, trang phục và chiều cao chi tiết chưa xác định. Hồ sơ riêng: `nhan-vat/DA_THIEN.md`.
 - **Dạ Thiên không biết thân thế Chu Tiểu Linh**; chỉ **Dạ Hành** nắm thông tin này. Các đệ tử **bị cấm công khai điều tra thân phận đồng môn**, nhưng lệnh cấm được dùng cả để bảo vệ bí mật và thử thách năng lực ngầm điều tra. Dạ Thiên *có thể* truy xét nhưng rất khó vì gia tộc nàng đã bị huyết tẩy; **không tự nói rằng hắn đã tra ra**.
 - **QUAN HỆ SƯ ĐỒ — TÁC GIẢ CHỐT:** Dạ Lan **không tin Dạ Hành**, cũng **không hề tin Quy Nguyên Lâu**. Dạ Hành đã bắt cóc nàng khi 8 tuổi và tham gia quá trình huấn luyện/hành xác khắc nghiệt. Nàng bị ép trải qua **dịch dung đau đớn để trở thành mỹ nhân dùng cho các mục tiêu nhiệm vụ**. Việc này là sự cưỡng ép và công cụ hóa con người, **không gọi là nuôi dưỡng ân cần hoặc ân nghĩa sư đồ**. Dạ Thiên cùng tham gia huấn luyện, chứng kiến sự đau đớn của nàng; chưa tự phán quyết trách nhiệm, mức độ chống đối hoặc thông đồng riêng của hắn nếu tác giả chưa nêu.
 - **QUAN HỆ CẤP TRÊN–CẤP DƯỚI, TÁC GIẢ CHỐT:** Dạ Lan **không tin, không sợ Dạ Hành**; đối với ông vẫn **có một phần kính trọng nhưng không nhiều**. Tác giả hình dung mức độ phục tùng mệnh lệnh của nàng chỉ **khoảng 50%** (mô tả tính cách, không phải chỉ số nhiệm vụ máy móc), trong khi **tỷ lệ hoàn thành nhiệm vụ rất cao**. Dạ Hành đã rèn nàng thành người có thể sẵn sàng chết vì nhiệm vụ; nếu chính ông ta truy sát, nàng cũng sẵn sàng đấu một trận sinh tử, không cầu xin hay tự động cúi đầu. **Đây là tình huống giả định, chưa chốt Dạ Hành sẽ truy sát nàng**. Không đồng nhất tôn trọng ít với trung thành tuyệt đối, cũng không suy diễn nàng luôn cố tình làm hỏng nhiệm vụ.
@@ -99,7 +101,7 @@ Bản Google Docs được tìm thấy:
 | Vì sao Quy Nguyên Lâu muốn thủ pháp quái nhân | **CÓ THỂ BIẾT — chưa chốt** | Chưa rõ | Chưa rõ | Chưa được tiết lộ |
 | Lập trường của Dạ Lan đối với Quy Nguyên Lâu | **Chưa từng tin tưởng tổ chức** | Chưa rõ | Không tự suy đoán hắn biết suy nghĩ nàng | Chưa thể kết luận từ 2 chương |
 | La Trọng Sơn là quái nhân thành công | Chưa rõ | Chưa rõ | Chưa rõ | Chưa được tiết lộ trong hai chương |
-| Dạ Thiên yêu Dạ Lan | Chưa rõ | Chưa rõ | **Biết tình cảm của chính mình** | Thiết lập tác giả, chưa lên trang |
+| Dạ Thiên yêu Dạ Lan | **Xem Dạ Thiên là huynh/tri kỷ, không phải tình nhân; chưa chốt có biết tình cảm ấy không** | Chưa rõ | **Biết tình cảm của chính mình** | Thiết lập tác giả, chưa lên trang |
 | Dạ Hành có động cơ gì khi bắt cóc Tiểu Linh | Chưa rõ | Chưa rõ | Chưa rõ | Chưa rõ |
 
 **Cấm nhầm:** Bảng “người đọc” chỉ phản ánh hai chương đã viết, không tính phần tác giả tiết lộ khi thảo luận. Dạ Lan có nhận ra trâm hay không xét ở cấp truyện nên không tự miêu tả nội tâm chưa được nàng nói thành lời.
@@ -118,7 +120,7 @@ Bản Google Docs được tìm thấy:
 - Dạ Thiên, Dạ Lan, Cảnh Duy tại lúc đó biết gì về bí mật La Trọng Sơn? Chứng cứ về quái nhân còn tồn tại không?
 - Dạ Thiên hành xử như thế nào khi Tạ Cảnh Duy ngăn việc đưa nàng đi? Dạ Lan đáp lại sư huynh ra sao?
 - Mức độ quyền lực và hình thức tra tấn của Quy Nguyên Lâu; vai trò Dạ Hành trong chuyện xử phạt.
-- Dạ Thiên bao nhiêu tuổi? Quan hệ tình cảm của hắn được Dạ Lan nhận biết ở mức nào? Thứ tự đệ tử của Dạ Lan trong 13 đệ tử **chưa xác nhận**.
+- Dạ Thiên bao nhiêu tuổi và có diện mạo chi tiết ra sao (tác giả đã xác nhận **rất đẹp trai**)? Dạ Lan có nhận biết tình cảm đơn phương của hắn không? Thứ tự đệ tử của Dạ Lan trong 13 đệ tử **chưa xác nhận**.
 - Kẻ sáng lập Quy Nguyên Lâu là ai, muốn khai thác thủ pháp đào tạo quái nhân nhằm mục đích gì? 
 - Dạ Hành bắt cóc Tiểu Linh vì sao; khi nào, bằng cách nào mới có thể phá lời thề giấu thân phận?
 
