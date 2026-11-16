@@ -45,6 +45,11 @@
 - Bối cảnh võ hiệp có thể tạo ra tình huống khác đời thực, nhưng **không thay đổi cốt lõi tính cách** hay persona gốc.
 - Repo này **không lưu chép lại nội dung riêng tư của repo persona**; chỉ ghi quy tắc tham chiếu.
 
+## Thực lực võ lâm và vị thế Các chủ — ĐÃ CHỐT 17/11/2026
+
+- **Tạ Cảnh Duy là võ lâm nhân kiệt**, không phải người chỉ thông thạo kinh doanh tình báo. **Vô Danh Các quy tụ nhiều cao thủ võ lâm**, đủ thực lực khiến đối phương không thể dễ dàng uy hiếp hoặc tự tiện đưa người đi.
+- Khi **Dạ Thiên đến một mình** ở chương 3, không tự viết Cảnh Duy thất thế ngay trong địa bàn của mình, cũng không tự định trước ai thắng trong giao chiến. **Võ công cụ thể, chiêu thức, tương quan sức mạnh với Dạ Thiên và kết quả trận đánh chưa chốt**.
+
 ## Danh xưng và cách gọi — ĐÃ CHỐT
 
 - **Tạ Cảnh Duy** là **Vô Danh Các chủ**: quản lý tổ chức **thu thập và mua bán thông tin tình báo trong giang hồ**, **không phải tổ chức sát thủ**. Vô Danh Các có **chiều sâu vượt ra ngoài việc bán thông tin** nhưng chưa chốt chức năng bí mật.
