@@ -148,3 +148,7 @@ Không mặc định việc chỉ nhìn một lần sẽ sao chép trọn vẹn 
 
 ## Lưu ý nhất quán
 Không để nàng vô cớ tiết lộ thân phận hoặc phá lời thề. Mọi bước ngoặt liên quan phải được bàn và chốt trước.
+
+### Khi ngủ trong vòng tay Cảnh Duy tại Mãn Nguyệt Đường — TÁC GIẢ CHỐT TÂM LÝ 17/11/2026
+- Mãn Nguyệt Đường là nơi nàng có thể sống thật; ở đây, **trong vòng tay của Tạ Cảnh Duy — người nàng yêu nhất**, Dạ Lan **không còn phải lo lắng, đề phòng**. Cảm giác an toàn sâu sắc khiến nàng có thể vô thức để lộ những gì ban ngày luôn giấu, không phải cố tình phá lời thề hoặc tự thú khi tỉnh.
+- **Gợi ý cảnh ngủ chưa được tác giả chốt làm sự kiện:** Chàng gọi “Tiểu Linh”, nàng đáp mơ “Duy ca ca”. Nếu dùng, đây là manh mối tăng nghi vấn thân phận, không được tự coi chàng đã xác nhận danh tính nàng.
