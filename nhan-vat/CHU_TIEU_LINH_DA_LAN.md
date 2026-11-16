@@ -39,6 +39,11 @@
 - **Đêm chương 3 ở Mãn Nguyệt Đường:** Sau khi Cảnh Duy **rời đi thực sự**, Dạ Lan **không đuổi theo**. Nàng uống rượu **cho quên sầu**, tự gặm nhấm nỗi đau về mười lăm năm bị tước quyền sống cho chính mình. **Nước mắt cứ rơi; nàng vừa cười vừa khóc, càng say lại càng cười**, nhưng **không sướt mướt, không than vãn nhiều lời**. Tiếng cười là sắc thái đau buồn, không có nghĩa nàng thanh thản hay vui vẻ.
 - **Không** chuyển cảnh thành nàng vui vẻ ăn mừng trốn thoát, chạy theo Các chủ hay đấu khẩu dài dòng; cũng **không** viết nàng không thể khóc hoặc kiềm chế được mọi giọt nước mắt. Chưa chốt độc thoại/lời văn cụ thể của chương.
 
+## Khi ở lãnh địa riêng Mãn Nguyệt Đường — ĐÃ CHỐT 17/11/2026
+- **Mãn Nguyệt Đường là cơ nghiệp, lãnh địa và chốn riêng của Dạ Lan**. Ở đó nàng **không sợ ai**, **có thể sống đúng bản chất**, thay vì phải giữ vẻ lạnh lùng gắng gượng trước Cảnh Duy hoặc đối phó kỷ luật của Quy Nguyên Lâu.
+- **Khi say rượu, nàng rất táo bạo**; sự chủ động và bản lĩnh vẫn là của nàng, không biến thành cô nương ngượng ngập, ríu rít đấu khẩu hay ngoan ngoãn nghe lời. Đêm uống rượu nàng **vừa cười vừa khóc** vì tâm sự sâu nặng.
+- Tình huống **nàng mời Các chủ vào phòng khi đang ngâm mình** là ý đang thảo luận; **chưa chốt** lời thoại, việc chàng có vào hay không và khoảng cách giữa họ. Rượu say không mặc nhiên cho phép vượt quá sự đồng thuận hoặc ranh giới của nàng.
+
 ## Ngôn hành khi say — ĐÃ CHỐT 17/11/2026
 - Dạ Lan **ít lời, lạnh lùng và bá đạo** ngay cả khi có rượu; **khi say lại rất bạo, táo bạo trong hành động**, không biến thành người nói nhiều, đấu khẩu dai dẳng hay ngượng ngùng trẻ con.
 - Trong cảnh tối ở Mãn Nguyệt Đường, lúc Các chủ nhắc uống thuốc, tác giả gợi ý nàng có thể chỉ nói đúng một chữ **“Cút”** rồi **tiếp tục uống rượu**, không thèm đôi co. Đây là **phương án thoại đang thử**, chưa phải câu văn chính thức của chương 3.
