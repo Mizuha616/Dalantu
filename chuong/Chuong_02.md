@@ -1,7 +1,7 @@
 # Dạ Lan Từ
 ## Chương 2 — Trâm mai
 
-**Trạng thái: BẢN NHÁP — CHỜ DUYỆT**
+**Trạng thái: ĐÃ DUYỆT — BẢN CHÍNH THỨC (16/11/2026)**
 
 ***
 
