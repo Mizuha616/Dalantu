@@ -25,7 +25,7 @@
 - **Từng bảo vệ:** Khi còn nhỏ, Dạ Thiên đã phản đối việc tổ chức ép Dạ Lan thành mỹ sát nhân, đòi công đạo cho sư muội; vì vậy bị **giam ba tháng thủy lao và tra tấn**, nhưng sống sót.
 - **Sau biến cố:** Cả hai không còn chống đối công khai như trước, mà **ngầm bảo vệ nhau** qua những tháng ngày gian nan; điều này không đồng nghĩa Dạ Lan tin Quy Nguyên Lâu hoặc luôn tuân lệnh.
 - **Dạ Lan nhìn Dạ Thiên:** Là **huynh**, **tri kỷ đồng sinh cộng tử**, **không phải tình nhân**. Nàng yêu Tạ Cảnh Duy.
-- **Dạ Thiên nhìn Dạ Lan:** Vừa là **sư muội, đồng môn**, vừa là **người đã thề sống chết bảo vệ**. Hắn yêu nàng, không thể công khai theo đuổi vì luật của Quy Nguyên Lâu; nếu có thể muốn đưa nàng đi trốn. **Chưa chốt** nàng đã nhận ra tình cảm ấy chưa.
+- **Dạ Thiên nhìn Dạ Lan:** Vừa là **sư muội, đồng môn**, vừa là **người đã thề sống chết bảo vệ**. Hắn yêu nàng, không thể công khai theo đuổi vì luật của Quy Nguyên Lâu; nếu có thể muốn đưa nàng đi trốn. **Dạ Lan biết rất rõ tình cảm ấy**, nhưng không nhận hắn làm tình nhân hay cho phép vượt giới hạn. Có những lần **Dạ Thiên say rượu và hôn nàng**; không tự xác quyết chi tiết sự đồng thuận hoặc phản ứng của nàng. **Nếu không tái ngộ Tạ Cảnh Duy**, Dạ Thiên *có thể* có cơ hội — chỉ là giả định, không phải tình cảm hiện tại của Dạ Lan.
 - **Ngoại hình Dạ Thiên:** Tác giả xác nhận **rất đẹp trai**, chưa chốt các nét và tuổi cụ thể.
 - **Chương 3:** Dạ Thiên đến Vô Danh Các vừa để thi hành lệnh đưa Dạ Lan về hỏi tội, vừa để tự mình bảo vệ nàng khỏi người áp giải khác. Cảnh đối thoại chưa chốt.
 
