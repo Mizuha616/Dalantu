@@ -79,7 +79,9 @@ Tạ Cảnh Duy và Chu Tiểu Linh từng có hôn ước. Chu gia bị diệt 
 - **Tạ Cảnh Duy bước vào** khi Dạ Lan đang đứng nhìn chiếc trâm và hỏi: **“Chiếc trâm ấy nhìn quen sao?”** Nàng đáp đúng lời: **“Không quen.”** rồi **quay đầu bỏ ra ngoài**, không giải thích và không để lộ cảm xúc.
 - **Sau đó, thông qua điều tra**, Cảnh Duy xác định chiếc trâm gỗ hoa mai thuộc về **Đại Mai** — **người hàng xóm cũ tốt bụng, hay cười**, từng chơi cùng **Tạ Cảnh Duy và Chu Tiểu Linh** thuở nhỏ, được hai người xem như tỷ tỷ. Đại Mai là một trong những nạn nhân của Tống Hoài Lễ. Cảnh Duy **bàng hoàng và đau xót** khi biết kết cục của tỷ tỷ, đồng thời **càng thêm nghi ngờ thân phận Dạ Lan** do nàng đặc biệt chú ý chiếc trâm, dù vừa phủ nhận quen biết. Chàng **chưa có chứng cứ khẳng định** Dạ Lan là Chu Tiểu Linh.
 - **Trật tự tiết lộ quan trọng:** Cảnh Duy không biết chủ nhân trâm khi hỏi Dạ Lan; danh tính Đại Mai và mối quan hệ thời thơ ấu chỉ được biết về sau qua điều tra. Không viết lời giải thích nội tâm của Dạ Lan hoặc phơi bày bí mật thay nàng.
-- **Chương 2 vẫn đang dựng sườn; chưa được duyệt thành chương văn xuôi.** Không lấy bản nháp chương 2 cũ làm canon; chưa chốt thời điểm phát hiện Đại Mai nằm trong chương 2 hay chương sau.
+- **ĐÃ CHỐT điểm kết chương 2:** việc Cảnh Duy tra ra Đại Mai là **cú lật ở cuối chương 2**; chàng bàng hoàng, đau xót và càng nghi Dạ Lan, nhưng **chưa nhận ra chắc chắn nàng là Chu Tiểu Linh**.
+- **Dụng ý tác giả:** từ số phận Đại Mai và sự quan tâm khó hiểu của Dạ Lan đến chiếc trâm, độc giả sẽ hiểu/ngầm suy ra **vì sao nàng nhất quyết giết Tống Hoài Lễ thay vì để hắn sống**. Không biến suy luận ấy thành lời thú nhận của Dạ Lan, không giải thích hộ tâm tư nàng trong văn xuôi.
+- **Chương 2 vẫn đang dựng sườn; chưa được duyệt thành chương văn xuôi.** Không lấy bản nháp chương 2 cũ làm canon; chưa chốt câu kết hoặc lời thoại bổ sung.
 
 ## Chưa chốt
 - Điểm mở đầu, mục tiêu bề mặt của từng nhân vật.
