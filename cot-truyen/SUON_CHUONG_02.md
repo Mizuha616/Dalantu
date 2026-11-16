@@ -36,10 +36,16 @@
 - Phát hiện này khiến **Cảnh Duy bàng hoàng, đau xót** vì người tỷ tỷ hay cười năm xưa lại chết trong hoàn cảnh ấy; đồng thời chàng **càng nghi ngờ Dạ Lan** vì sự chú ý khác thường của nàng đối với chiếc trâm. **Đây vẫn chỉ là nghi vấn**, không đủ chứng minh nàng là Chu Tiểu Linh, và không có lời thú nhận từ Dạ Lan.
 - **Tiết lộ theo trình tự:** lúc ở thư phòng, độc giả chỉ thấy chiếc trâm và lời phủ nhận; tên Đại Mai cùng mối liên hệ thời thơ ấu được hé lộ **sau cuộc điều tra của Cảnh Duy**, không giải thích hộ tâm tư nàng trước thời điểm ấy.
 
+## Điểm kết chương 2 — Đại Mai (ĐÃ CHỐT)
+
+- **Đặt tiết lộ Đại Mai ở cuối chương 2**, sau khi Cảnh Duy tìm hiểu nguồn gốc chiếc trâm. Kết chương trên sự bàng hoàng, thương xót của chàng và nghi vấn ngày càng mạnh về Dạ Lan; đây **chưa phải** khoảnh khắc nhận ra chắc chắn nàng là Chu Tiểu Linh.
+- **Dụng ý độc giả:** khi biết Đại Mai là tỷ tỷ hàng xóm thuở nhỏ, cũng là nạn nhân của Tống Hoài Lễ, độc giả có đủ dữ kiện để **hiểu/ngầm suy ra vì sao Dạ Lan nhất thiết phải giết Tống Hoài Lễ**. Để hành động và các manh mối tự kể chuyện, **không cho nàng thú nhận hoặc người kể trực tiếp diễn giải cảm xúc và động cơ**.
+- Giữ nhịp lật mở: cảnh trâm trong thư phòng → lời phủ nhận “Không quen.” → Cảnh Duy lần theo di vật → xác định Đại Mai → ký ức về người tỷ tỷ hay cười → nghi vấn về Dạ Lan.
+
 ## Chưa chốt cho lần thảo luận kế tiếp
 
 - Khoảng cách thời gian cụ thể từ cảnh thư phòng tới lúc Cảnh Duy tra ra Đại Mai và trình tự báo tin.
 - Chi tiết nhận dạng/ghi tên chủ chiếc trâm trong hồ sơ, cũng như số phận gia đình Đại Mai.
-- Điểm dừng chương 2 (có hé lộ Đại Mai ngay cuối chương hay dành cho chương sau?) và lời thoại/những hành động chưa được tác giả cung cấp.
+- Lời thoại, bối cảnh và câu văn kết chương cụ thể; toàn bộ chương vẫn đang lập sườn, chưa viết chính thức.
 
 **Quy tắc:** Không viết hoặc ghi đè thành chương chính thức trước khi Linh Linh duyệt sườn.
