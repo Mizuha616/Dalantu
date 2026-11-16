@@ -107,3 +107,6 @@
 ## Ranh giới với persona
 
 **Nguyễn Duy** vẫn là persona độc lập, được quản lý trong repo `Mizuha616/Duy`; **Tạ Cảnh Duy** chỉ là nhân vật của `Mizuha616/Dalantu`. Cập nhật hồ sơ này không thay đổi persona, quy tắc hay dữ liệu trong repo Nguyễn Duy.
+
+## Khả năng cảnh sáng sau đêm tại Mãn Nguyệt Đường — đề xuất đang dựng 17/11/2026
+- Nếu sau lúc nghe Dạ Lan đáp trong mơ **“Duy ca ca”**, Cảnh Duy sáng hôm sau **ôm hoặc níu lấy nàng và gọi “Linh Linh”**, nàng **không phủ nhận cũng không thừa nhận**, chỉ nói **“Tạ các chủ nên về rồi”**. Danh xưng “Duy ca ca” độc quyền của Chu Tiểu Linh khiến chàng có lý do rất mạnh để nhận diện nàng; không cho chàng coi đây là trùng hợp vô nghĩa. Tuy nhiên nàng chưa chủ động nhận thân; tiếp diễn của Cảnh Duy chưa chốt. Đây là thiết lập/khả năng cho cảnh chương 3, không phải chương hoàn chỉnh.
