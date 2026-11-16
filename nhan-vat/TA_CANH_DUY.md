@@ -84,6 +84,11 @@
 - Cảnh Duy vừa được chứng kiến sự ngông cuồng, bướng bỉnh của nàng, vừa thấy buồn cười. Nàng rất trẻ, **trạc tuổi Chu Tiểu Linh nếu nàng ấy còn sống**; điều này có thể gợi chàng nhớ đến người cũ nhưng **chàng chưa nhận ra Dạ Lan là Linh Linh**.
 - Chưa chốt lời đáp cụ thể của chàng và chi tiết hồi tưởng.
 
+## Thính giác và cảm nhận — ĐÃ CHỐT 17/11/2026
+- Tạ Cảnh Duy **tai rất thính**; ngoài khả năng tình báo, chàng là **võ lâm nhân kiệt**, có thể nghe được những âm thanh nhỏ ở gần.
+- Đêm ở Mãn Nguyệt Đường, khi Dạ Lan ngâm mình uống rượu, chàng **nghe rõ nàng vừa khóc vừa cười** và **biết nàng có tâm sự**, không phải hoàn toàn không hay biết.
+- Chàng **không biết chắc nguồn cơn của nỗi đau**, không vì thế mà nhận ra nàng chính là Chu Tiểu Linh. Không viết chàng tự tiện xông vào phòng tắm.
+
 ## Diễn biến chương 3 — TÁC GIẢ CHỐT CÁC NHỊP 17/11/2026
 - **Tạ Cảnh Duy giao chiến với Dạ Thiên tại Vô Danh Các.** Trong lúc hai nam nhân giao đấu, **Dạ Lan vận khinh công rời khỏi Vô Danh Các**, về **Mãn Nguyệt Đường** ngâm mình, thưởng rượu.
 - **Đến tối, Cảnh Duy bất ngờ nhắc nàng uống thuốc** vì thương tích chưa hồi phục hoàn toàn. Chàng vốn biết Dạ Lan đứng sau Mãn Nguyệt Đường, nhưng **chưa biết nàng là Chu Tiểu Linh**.
