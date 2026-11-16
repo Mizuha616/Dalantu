@@ -84,6 +84,11 @@
 - Cảnh Duy vừa được chứng kiến sự ngông cuồng, bướng bỉnh của nàng, vừa thấy buồn cười. Nàng rất trẻ, **trạc tuổi Chu Tiểu Linh nếu nàng ấy còn sống**; điều này có thể gợi chàng nhớ đến người cũ nhưng **chàng chưa nhận ra Dạ Lan là Linh Linh**.
 - Chưa chốt lời đáp cụ thể của chàng và chi tiết hồi tưởng.
 
+## Diễn biến chương 3 — TÁC GIẢ CHỐT CÁC NHỊP 17/11/2026
+- **Tạ Cảnh Duy giao chiến với Dạ Thiên tại Vô Danh Các.** Trong lúc hai nam nhân giao đấu, **Dạ Lan vận khinh công rời khỏi Vô Danh Các**, về **Mãn Nguyệt Đường** ngâm mình, thưởng rượu.
+- **Đến tối, Cảnh Duy bất ngờ nhắc nàng uống thuốc** vì thương tích chưa hồi phục hoàn toàn. Chàng vốn biết Dạ Lan đứng sau Mãn Nguyệt Đường, nhưng **chưa biết nàng là Chu Tiểu Linh**.
+- **Chưa xác định** cách chàng nhắc thuốc, có trực tiếp hiện diện hay không, kết quả trận đấu hoặc cuộc trò chuyện chính thức. Không tự coi cảnh đối thoại bông đùa khi thảo luận là lời thoại canon.
+
 ## Chưa xác định
 
 - Thân thế chi tiết, gia tộc, sư môn, thời điểm trở thành Các chủ và các chức phận khác (nếu có).
