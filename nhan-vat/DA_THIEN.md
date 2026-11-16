@@ -30,6 +30,7 @@
 
 ## Đầu chương 3 — ĐÃ CHỐT MỤC TIÊU, CHƯA CHỐT CẢNH
 - **Tình báo chưa nắm:** Dạ Thiên **không biết Dạ Lan bí mật điều hành Mãn Nguyệt Đường**, dù hai người gắn bó mười lăm năm. Ngược lại Tạ Cảnh Duy đã biết nàng đứng sau tửu lâu từ trước khi gặp mặt; đó là lợi thế tình báo của Cảnh Duy. Dạ Thiên cũng chưa biết hôn ước Chu Tiểu Linh – Cảnh Duy.
+- **ĐẾN MỘT MÌNH — TÁC GIẢ CHỐT:** Dạ Thiên **đơn độc đến Vô Danh Các**, không dẫn theo quân của Quy Nguyên Lâu. Vô Danh Các có **nhiều cao thủ võ lâm** và Các chủ **Tạ Cảnh Duy là võ lâm nhân kiệt**; Dạ Thiên không thể mặc nhiên hăm dọa hay dựa vào sức một người để áp chế cả tổ chức. Mục đích vẫn là tiếp cận sư muội trước người của Quy Nguyên Lâu khác; không tự sáng tác phương án đột nhập hoặc uy hiếp.
 - **Ưu tiên khẩn cấp:** Dạ Thiên **quyết tâm phải đến đón Dạ Lan trước các nhân sự khác của Quy Nguyên Lâu** để tránh nàng bị người khác áp giải và trừng phạt không nương tay. Đây là **mục tiêu**, chưa chốt chàng có thành công.
 - **Sẽ có giao chiến trong chương 3**, nhưng **chưa xác định cặp đối thủ, ngòi nổ, kết quả hoặc thương tích**; không tự mặc định chàng đánh Tạ Cảnh Duy.
 - Sau **năm ngày** Dạ Lan dưỡng thương tại Vô Danh Các, Dạ Thiên đến nơi để **đưa nàng về Quy Nguyên Lâu chịu hỏi tội** vì đã giết Tống Hoài Lễ thay vì bắt sống theo lệnh.
