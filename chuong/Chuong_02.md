@@ -1,564 +1,488 @@
 # Dạ Lan Từ
-## Chương 2 — Dấu cũ
+## Chương 2 — Trâm mai
 
 **Trạng thái: BẢN NHÁP — CHỜ DUYỆT**
 
 ***
 
-Đêm đã khuya, đèn trong thư phòng Vô Danh Các vẫn sáng.
+Nắng sớm phủ lên những lớp mái lưu ly xanh thẫm của Vô Danh Các.
 
-Trên bàn Tạ Cảnh Duy đặt ba tập hồ sơ.
+Từ cửa sổ gian khách phòng trên lầu cao, có thể nhìn thấy những dãy nhà nối tiếp nhau qua nhiều khoảng sân rộng. Mái cong thấp thoáng giữa tán tùng, hành lang gỗ sẫm uốn theo triền đất, khi men sát bờ hồ, khi bắc ngang những lối đi lát đá xanh. Phía xa nhất là một tòa lầu bảy tầng, các tầng mái vươn ra đều đặn, thanh thoát như nét bút trên nền trời.
 
-Một tập ghi lại những cuộc hôn nhân của viên quan đã chết. Một tập là lời khai của những gia đình từng đưa đơn kêu oan. Tập còn lại mỏng hơn cả, chỉ có vài trang giấy chép những cái tên không thể tìm thấy người.
+Giữa quần thể lầu các ấy, một hồ nước trải rộng dưới nắng. Cầu đá trắng chia mặt hồ thành hai khoảng sáng tối; thủy tạ lục giác nằm nép giữa những đám lá sen, rèm trúc bên hiên được buộc gọn để đón gió. Ven bờ, trúc mọc thành khóm, xen những gốc mai già và tùng cổ thụ. Một dòng nước từ khe đá nhân tạo chảy xuống hồ, tiếng róc rách vừa đủ nghe khi gió lặng.
 
-Cảnh Duy đọc đến trang cuối cùng rồi khép hồ sơ.
+Cảnh trí bề thế mà không phô trương. Những nơi cần rộng thì rộng, những chỗ cần tĩnh lại kín đáo và thanh nhã. Đá, gỗ, nước và cây cối được sắp đặt khéo léo, đến cả bóng râm đổ xuống các lối đi cũng như đã được tính trước.
 
-Ngọn đèn lay nhẹ.
+Nhưng Vô Danh Các không phải một bức tranh vắng người.
 
-Có người gõ cửa.
+Dưới sân, mấy thị nữ bưng khay sứ đi thành hàng, bước chân thoăn thoắt. Một vị quản sự mặc áo xanh đậm đang dẫn hai người khách qua hành lang phía đông; phía sau họ có tiểu đồng ôm một ống đựng thư dài. Bên kia cầu đá, hai người vận trang phục gọn gàng vừa từ ngoài trở về, xuống ngựa rồi trao túi văn thư cho người chờ sẵn.
 
-“Các chủ, tin từ phủ ấy đã được đối chiếu. Chuyện những tân nương chết bất thường không phải lời đồn. Chúng thuộc về nhiều gia đình khác nhau, nhưng đơn kêu oan đều không đi tới đâu.”
+Thỉnh thoảng có tiếng kiếm luyện tập vọng đến từ khoảng sân khuất sau rặng trúc, xen lẫn tiếng chuông đồng nhỏ treo dưới mái hiên. Những đoàn người đi qua nhau, kẻ cúi chào, người dừng lại trao vài lời, rồi tiếp tục công việc. Giữa cái tấp nập ấy vẫn có một trật tự kín đáo, như thể cả tòa các rộng lớn đang vận hành theo nhịp riêng của nó.
 
-“Những người còn sống?”
+Bên khung cửa sổ, Dạ Lan đứng lặng.
 
-“Có người đã rời quê. Có người không muốn nhắc lại chuyện cũ.”
+Nàng chỉ mặc một bộ trung y trắng. Lớp vải mềm ôm lấy thân hình mảnh mai, tà áo rủ xuống gần mắt cá chân. Mái tóc đen dài chưa vấn, thả tự nhiên sau lưng. Gương mặt nàng vẫn còn nhợt nhạt sau lần trọng thương, một bàn tay đặt hờ lên khung gỗ để đỡ lấy sức nặng thân thể.
 
-“Đừng ép họ.” Cảnh Duy đặt tập giấy xuống. “Ai đồng ý nói thì ghi lại. Ai không muốn, cứ để họ yên. Trước khi tin tức được kiểm chứng, không được để những gia đình ấy gặp thêm phiền phức.”
+Dưới ánh sáng ban mai, dáng vẻ ấy có phần mong manh.
 
-Người ngoài cửa vâng dạ rồi lui xuống.
+Song lưng nàng vẫn thẳng, cằm hơi nâng, đôi mắt nâu thẫm bình thản nhìn ra ngoài. Nơi khóe mắt không có vẻ yếu đuối, cũng không có chút hiếu kỳ của người lần đầu trông thấy một phủ đệ nguy nga.
 
-Trong phòng lại chỉ còn tiếng gió.
+Một cánh chim trắng sà qua mặt hồ, làm đám lá sen khẽ lay động.
 
-Cảnh Duy mở tập hồ sơ đầu tiên.
+Từ cuối hành lang, tiếng bước chân rất nhẹ truyền đến.
 
-Viên quan nọ quả thật đã chết, song cái chết của hắn không xóa được những người từng giúp hắn cưỡng ép tân nương, che giấu thi thể, bịt miệng thân quyến. Những kẻ ấy có thể còn sống, thậm chí đang thở phào vì từ nay chẳng ai còn nghe hắn khai ra tên mình.
+Nhịp chân đều, không vội, điểm đặt chân gần như không gây tiếng động trên sàn gỗ. Đó không phải bước đi của một người bình thường; mỗi bước đều gọn và vững, mang thói quen của kẻ đã luyện võ nhiều năm. Trong khoảng không tĩnh lặng không có sát khí. Chỉ có một mùi thuốc nhàn nhạt theo gió lọt qua cửa.
 
-Đêm hôn lễ, khi đặt câu hỏi với Dạ Lan, chàng đã nghĩ đến những đầu mối sẽ mất đi theo một mạng người.
+Người ấy còn chưa kịp lên tiếng, Dạ Lan đã nói:
 
-Bây giờ, nhìn những trang giấy trước mặt, chàng lại nghĩ đến những mạng người đã mất trước đó.
+“Các chủ đến rồi.”
 
-Hai điều ấy đều là sự thật.
+Tạ Cảnh Duy bước qua ngưỡng cửa, trên tay là chén thuốc đang tỏa hơi ấm.
 
-Và chàng chưa thể chỉ dựa vào một trong hai để phán đoán toàn bộ câu chuyện.
+Chàng dừng lại một thoáng.
 
-Cảnh Duy đưa tay day nhẹ giữa hai đầu mày.
+Thiếu nữ mà hôm trước còn không tự đứng vững, lúc này đã rời giường, đứng bên cửa sổ như thể chưa từng trúng một nhát kiếm hiểm nghèo.
 
-Nữ tử trong giá y đỏ lại hiện lên trước mắt.
+“Cô nương có vẻ thích ngắm cảnh hơn dưỡng thương.”
 
-*Ta thích giết thì giết thôi.*
+Dạ Lan không quay đầu.
 
-Nàng nói câu ấy chẳng hề do dự.
+Cảnh Duy bước đến bàn, đặt chén thuốc lên đĩa sứ.
 
-Nếu thật sự giết người chỉ vì thích, cớ sao trước lúc ngất đi, nàng vẫn cố gắng trợ kiếm cho một kẻ xa lạ? Cớ sao khi lưỡi kiếm đâm vào thân thể, điều khiến nàng mỉm cười lại là nhìn thấy chàng?
+“Thuốc đã sắc xong. Mời cô nương dùng khi còn ấm.”
 
-Tạ Cảnh Duy không tìm được lời giải.
+Ngoài cửa sổ, một hồi chuông rất khẽ ngân lên dưới mái thủy tạ.
 
-Chàng chỉ biết trước mắt có một người đang bị thương rất nặng.
+“Thật là một kiệt tác.”
 
-Những chuyện còn lại, có thể chờ.
+Chàng ngước mắt.
 
-***
-
-Sáng hôm sau, Dạ Lan tỉnh giấc khi nghe tiếng chim ngoài cửa sổ.
-
-Nàng không lập tức mở mắt.
-
-Thói quen nhiều năm khiến nàng nghe ngóng trước, phân biệt tiếng lá cọ mái hiên, tiếng bước chân ngoài hành lang và khoảng lặng giữa những âm thanh ấy.
-
-Không có sát khí.
-
-Không có tiếng binh khí.
-
-Chỉ có mùi thuốc nhàn nhạt, lẫn trong hương gỗ sạch của căn phòng.
-
-Nàng mở mắt.
-
-Trên chiếc ghế cạnh giường đặt một bộ y phục mới. Vải màu tím nhạt pha khói, đường may giản dị mà tinh tế. Bộ giá y đỏ của đêm ấy đã không còn trong phòng.
-
-Dạ Lan nhìn màu áo một lúc.
-
-Đây là màu nàng thích.
-
-Một sự tình cờ nhỏ nhặt, chẳng đáng để bận tâm, vậy mà khiến nàng thấy lòng mình dịu xuống.
-
-Nàng chống tay ngồi dậy.
-
-Vết thương lập tức kéo theo một cơn đau nhói. Sắc mặt nàng không đổi, nhưng các đầu ngón tay vô thức siết chặt mép chăn.
-
-Từ ngày trở thành Dạ Lan, nàng đã quá quen với chuyện tự mình gắng gượng.
-
-Chỉ có lần này, thân thể không chiều theo ý nàng.
-
-Cửa phòng khẽ mở.
-
-Tạ Cảnh Duy bước vào, tay cầm một chén thuốc còn bốc hơi.
-
-Vừa nhìn thấy nàng ngồi thẳng lưng trên giường, chàng đã dừng lại.
-
-“Ta nhớ đã dặn cô nương nghỉ ngơi.”
-
-“Ta đang nghỉ.”
-
-Cảnh Duy nhìn tư thế cứng đờ của nàng.
-
-“Vậy xem ra cách nghỉ ngơi của cô nương khá vất vả.”
-
-Dạ Lan liếc chàng.
-
-Chàng đặt chén thuốc xuống, không nhịn được một nụ cười.
-
-“Được rồi, ta không nói nữa. Thuốc còn nóng, chờ một lát hãy uống.”
-
-Dạ Lan nhìn chén thuốc.
-
-“Các chủ định giữ ta đến bao giờ?”
-
-“Đến khi vết thương không còn đe dọa tính mạng nàng.”
-
-“Ta đã tỉnh.”
-
-“Tỉnh lại và khỏi bệnh là hai chuyện khác nhau.”
-
-Nàng im lặng.
-
-Tạ Cảnh Duy kéo ghế ngồi xuống, giữ một khoảng cách vừa phải để nàng không cảm thấy bị ép buộc.
-
-“Nếu nàng có việc cần xử lý, ta có thể sai người chuyển lời. Nhưng với tình trạng hiện tại, rời khỏi đây không phải lựa chọn sáng suốt.”
-
-“Ta không muốn nợ ân tình.”
-
-“Cứu người không phải một cuộc giao dịch.”
-
-Dạ Lan ngước mắt.
-
-Chàng nói câu ấy hết sức tự nhiên.
-
-Vô Danh Các nổi tiếng vì mua bán tin tức. Người giang hồ bước qua cửa Các đều hiểu mỗi điều muốn biết phải có cái giá tương ứng.
-
-Vậy mà chủ nhân nơi ấy lại nói với nàng rằng cứu người không phải giao dịch.
-
-Nàng nhìn chàng rất lâu.
-
-“Các chủ làm ăn như thế, không sợ lỗ vốn sao?”
-
-Cảnh Duy hơi ngẩn ra, rồi bật cười.
-
-“May mà Vô Danh Các chưa đến nỗi phải kiếm tiền bằng bát thuốc của người bệnh.”
-
-Khóe môi Dạ Lan khẽ động.
-
-Rất nhanh, nàng lại trở về vẻ lạnh nhạt thường ngày.
-
-Nhưng chàng đã nhìn thấy.
-
-Không phải nụ cười của nữ sát thủ trên sân máu.
-
-Chỉ là một nét cười rất trẻ, thoáng qua trước khi kịp trở thành lời nói.
-
-Và chẳng hiểu sao, Cảnh Duy thấy nó quen thuộc.
-
-***
-
-Thuốc đã nguội bớt.
-
-Dạ Lan cầm chén lên, uống cạn không một lời phàn nàn.
-
-Tạ Cảnh Duy đưa cho nàng một cốc nước.
-
-Nàng nhận lấy.
-
-Bàn tay chàng lúc ấy ở rất gần.
-
-Dạ Lan bỗng nhớ tới một mùa xuân cách đây mười lăm năm, khi nàng còn thấp hơn chàng rất nhiều. Hồi ấy, chỉ cần chạy vài bước, nàng đã có thể đuổi theo bóng dáng một thiếu niên luôn đi phía trước.
-
-Ký ức hiện lên đột ngột đến mức nàng phải khẽ hạ mắt.
-
-Bây giờ bàn tay ấy đã lớn hơn.
-
-Trên những ngón tay có dấu vết của người thường xuyên luyện kiếm. Lúc đỡ nàng khỏi sân phủ, cũng chính bàn tay này đã giữ nàng lại giữa cơn mê man, không để nàng rơi xuống nền đá lạnh.
-
-Dạ Lan siết nhẹ cốc nước.
-
-Tạ Cảnh Duy nhìn nàng.
-
-“Nàng đang nghĩ gì?”
-
-“Không có gì.”
-
-“Vậy sao lại nhìn tay ta?”
-
-Nàng không đáp ngay.
-
-Sau một thoáng, nàng nói:
-
-“Đêm ấy, tay áo của các hạ bị kiếm rạch.”
-
-Cảnh Duy cúi nhìn tay mình.
-
-Vết rách trên áo đã được thay đi từ lâu. Trận giao chiến ấy cũng chẳng gây thương tích đáng kể cho chàng.
-
-“Ta không sao.”
+“Cô nương đang khen nơi này?”
 
 Dạ Lan khẽ gật đầu.
 
-“Vậy thì tốt.”
+Tạ Cảnh Duy nhìn theo hướng nàng đang đứng. Từ gian phòng này, cả hồ nước, cầu đá và những lớp lầu nối nhau đều hiện ra rõ ràng. Khi chọn vị trí xây khu khách viện, chàng đã mất không ít công sức để giữ lại tầm nhìn ấy, cũng như từng tự mình cân nhắc việc dời một gốc tùng hay mở rộng thêm một đoạn hành lang.
 
-Chỉ ba chữ.
+“Được cô nương khen như vậy,” chàng nói, “xem ra tâm sức ta bỏ ra cũng không uổng.”
 
-Không một lời giải thích.
+“Ta chưa từng tự mình đến đây.”
 
-Thế nhưng sắc mặt nàng lại nhẹ nhõm đến mức Cảnh Duy không thể coi đó là lời khách sáo.
+Cảnh Duy nghiêng đầu.
 
-Chàng nhớ rất rõ đêm nàng trúng kiếm.
+Hai chữ *tự mình* khiến chàng chú ý.
 
-Chàng đã bảo nàng lùi lại. Nàng không nghe.
+Vô Danh Các giao dịch tin tức với người trong giang hồ đã nhiều năm. Có người từng mua hàng chục bản mật báo mà chưa hề đặt chân qua cổng chính. Có kẻ dù mang theo bạc vàng cũng chỉ được tiếp ở ngoại viện, chẳng biết phía sau những dãy tường cao kia còn bao nhiêu lầu các.
 
-Rõ ràng chỉ còn chút sức tàn, nàng vẫn bước tới, nâng kiếm, buộc đối thủ phải chuyển hướng để chàng có cơ hội phản kích.
+Căn phòng Dạ Lan đang ở lại thuộc khu khách viện đặc biệt, nơi không phải ai đến Vô Danh Các cũng được mời vào.
 
-Lúc ấy chàng nghĩ nàng không chịu bỏ cuộc.
+“Vậy đây là lần đầu cô nương tận mắt thấy nó.”
 
-Giờ chàng bất giác tự hỏi: Có thật chỉ là thế không?
+Nàng không phủ nhận.
 
-“Dạ Lan cô nương.”
+Cảnh Duy nhìn sắc mặt còn trắng của nàng.
 
-Nàng ngẩng lên.
+“Phong cảnh vẫn ở đây. Cô nương không cần đứng lâu để ngắm hết trong một buổi sáng.”
 
-“Trước đêm ở phủ ấy, chúng ta đã từng gặp nhau chưa?”
+Dạ Lan rời mắt khỏi mặt hồ.
 
-Căn phòng yên tĩnh.
+“Tạ các chủ vì sao lại giúp ta?”
 
-Ánh nắng từ song cửa rơi nghiêng trên má nàng, xuyên qua đôi mắt nâu thẫm. Sắc đỏ rất nhạt nơi đáy mắt dần hiện ra, tựa một vệt màu được giấu kỹ dưới lớp mực đen.
+Câu hỏi đến đột ngột, không chút khách sáo.
 
-Cảnh Duy nhìn thấy.
+Chàng im lặng trong giây lát.
 
-Dạ Lan cũng biết chàng đang nhìn.
-
-Nàng không cúi đầu.
-
-Không né tránh.
-
-Nàng cứ để chàng nhìn, để ánh mắt dịu dàng của mình đối diện với đôi mắt sâu và sáng ấy.
-
-Một lúc sau, nàng hỏi:
-
-“Nếu từng gặp, Các chủ có nhớ không?”
-
-Câu hỏi ấy khiến Tạ Cảnh Duy im lặng.
-
-Đáng lẽ chàng có thể đáp rằng mình đã gặp quá nhiều người.
-
-Đáng lẽ chàng có thể nói một gương mặt xa lạ giữa chốn giang hồ không dễ lưu lại trong trí nhớ.
-
-Nhưng đôi mắt nàng khiến những lời ấy đều không đúng.
-
-“Có những người,” chàng chậm rãi nói, “ta sẽ không quên.”
-
-Dạ Lan nhìn chàng.
-
-Trong một khoảnh khắc, vẻ lạnh lùng trên gương mặt nàng như tan đi, chỉ còn ánh mắt sâu thẳm, yên tĩnh mà đầy thương nhớ.
-
-Chàng không biết nàng đang nghĩ tới ai.
-
-Còn nàng thì biết rất rõ.
-
-*Mười lăm năm rồi, Duy ca ca.*
-
-*Chàng vẫn chưa quên sao?*
-
-Nàng không hỏi thành lời.
-
-Một lúc lâu sau, Dạ Lan đặt cốc nước xuống.
-
-“Thuốc đã uống xong. Các chủ có thể yên tâm.”
-
-Đó là cách nàng kết thúc câu chuyện.
-
-Cảnh Duy hiểu ý, không hỏi tiếp.
-
-Chàng đứng dậy.
-
-“Ta sẽ sai người đem chút thức ăn tới. Nàng cứ nghỉ thêm.”
-
-Lúc bước đến cửa, chàng bỗng nghe giọng nàng phía sau:
-
-“Tạ Các chủ.”
-
-Chàng quay lại.
-
-Dạ Lan nhìn chàng, ánh mắt vẫn không giấu đi sự quan tâm.
-
-“Đừng vì chuyện của ta mà chậm trễ việc của mình.”
-
-Cảnh Duy suy nghĩ một thoáng.
-
-“Việc của ta, ta tự biết thu xếp.”
-
-Nàng không nói nữa.
-
-Chàng mỉm cười, giọng ôn hòa:
-
-“Còn việc của nàng lúc này là dưỡng thương.”
-
-Cánh cửa khép lại.
-
-Dạ Lan nhìn khoảng không nơi chàng vừa đứng.
-
-Rất lâu sau, nàng mới khẽ thở ra.
-
-Giữ khoảng cách với một người xa lạ không khó.
-
-Giữ khoảng cách với người mà mình đã nhớ suốt mười lăm năm, hóa ra lại khó hơn nàng tưởng.
-
-***
-
-Đến trưa, tin tức từ phủ viên quan tiếp tục được đưa về.
-
-Cảnh Duy không triệu Dạ Lan tới đối chất.
-
-Chàng cũng không cho rằng sau khi biết những chuyện ấy, mình có thể lập tức hiểu hết một nữ tử đã sống giữa chốn sát phạt nhiều năm.
-
-Các bản ghi chép chỉ chứng minh viên quan phạm những tội ác nào.
-
-Chúng không chứng minh ai giao nhiệm vụ cho Dạ Lan, vì sao nàng nhận nhiệm vụ, hay nàng đã biết bao nhiêu trước khi bước vào tân phòng.
-
-Càng không giải thích được tên thuộc hạ đã phát cuồng vì điều gì.
-
-Cảnh Duy đánh dấu những chỗ còn thiếu, dặn người tiếp tục xác minh.
-
-Sau đó chàng lấy ra tờ ghi chép về trận giao chiến đêm ấy.
-
-Một người võ công thượng thừa đột nhiên mất hết lý trí, bất kể địch ta, chỉ biết tàn sát.
-
-Một nữ sát thủ vốn có thể thoát thân lại bị đẩy vào thế không còn đường lùi.
-
-Một lần trùng phùng mà chàng không hề biết mình đã bước vào điều gì.
-
-Chàng đặt bút xuống.
-
-Trong tất cả những chuyện ấy, điều khiến chàng bận lòng nhất vẫn là đôi mắt Dạ Lan.
-
-Mười lăm năm trước, khi Chu Tiểu Linh tám tuổi, chàng đã đủ lớn để biết Chu gia có một đặc điểm huyết thống khác thường.
-
-Mắt nâu thẫm.
-
-Sắc đỏ ẩn sâu.
-
-Và khả năng quan sát khiến không ít kẻ vừa thèm muốn vừa e sợ.
-
-Chàng không thể nhầm lẫn màu sắc ấy với một đôi mắt bình thường dưới ánh đèn.
-
-Thế nhưng ngoài đôi mắt, Dạ Lan gần như không có điểm nào để chàng nhận ra bé gái ngày xưa.
-
-Ngũ quan khác biệt.
-
-Khí chất khác biệt.
-
-Một người là tiểu cô nương đã mất tích giữa huyết án; người kia là sát thủ của Quy Nguyên Lâu, cầm kiếm bước qua những cuộc sinh tử.
-
-Chẳng ai có thể dễ dàng nói hai người là một.
-
-Cảnh Duy mở ngăn bàn, lấy ra những ghi chép cũ về Chu gia mà chàng vẫn giữ.
-
-Những trang giấy đã ngả màu.
-
-Có những việc quá khứ càng muốn quên, người ta lại càng nhớ rõ.
-
-Ngày nhận tin Chu gia gặp nạn, chàng từng tin rằng chỉ cần tìm đủ lâu, có lẽ sẽ thấy Linh Linh ở đâu đó.
-
-Rồi năm tháng đi qua.
-
-Tin tức về nàng vẫn chỉ dẫn tới cùng một kết luận.
-
-Nàng đã chết.
-
-Chàng chưa từng có chứng cứ để nghĩ khác.
-
-Cho đến đêm giá y đỏ.
-
-Cảnh Duy chậm rãi khép mắt.
-
-Nụ cười đầy máu ấy lại hiện lên.
-
-Một người không quen biết sẽ không nhìn chàng như thế.
-
-Ít nhất, chàng không thể tự thuyết phục mình tin như vậy nữa.
-
-***
-
-Buổi chiều, nắng trải dài trên khoảng sân bên ngoài phòng Dạ Lan.
-
-Nàng đã thay bộ y phục tím nhạt màu khói.
-
-Tóc đen buông xuống vai, không còn trâm cài nặng nề của đêm thành thân. Gương mặt vẫn hơi nhợt nhạt vì mất máu, nhưng vẻ đẹp lạnh lùng, kiêu sa vốn có không vì thế mà giảm đi.
-
-Nàng ngồi bên cửa sổ, nhìn những cánh lá chuyển động trong gió.
-
-Bên cạnh là thanh kiếm của nàng.
-
-Tạ Cảnh Duy đã cho người trả lại.
-
-Không khóa cửa.
-
-Không tước kiếm.
-
-Không buộc nàng hứa sẽ ở lại.
-
-Dạ Lan đặt tay lên vỏ kiếm, ngón tay nhẹ nhàng vuốt qua mặt da sẫm màu.
-
-Tạ Cảnh Duy hoàn toàn có thể dùng thân phận Các chủ để giữ một sát thủ trọng thương lại tra hỏi. Với những tin tức chàng muốn biết, có lẽ cả giang hồ đều cho rằng đó là chuyện hợp lý.
-
-Nhưng chàng không làm vậy.
-
-Chàng chỉ đặt thuốc bên giường, hỏi nàng có đau không, rồi để nàng tự quyết định khi nào muốn mở miệng.
-
-Có tiếng bước chân đến gần.
-
-Dạ Lan không cần quay đầu cũng đoán được là ai.
-
-“Cô nương thấy áo có vừa không?”
-
-Giọng Cảnh Duy vang lên từ cửa.
-
-“Vừa.”
-
-“Vết thương?”
-
-“Không sao.”
-
-Chàng nhìn nàng, vẻ mặt thoáng bất đắc dĩ.
-
-“Ta bắt đầu nghi ngờ cô nương chỉ có một câu trả lời cho chuyện này.”
-
-“Có thể.”
-
-Cảnh Duy bật cười.
-
-Chàng bước tới nhưng dừng lại khi thấy thanh kiếm bên cạnh nàng.
-
-“Ta đã nhờ người giữ gìn nó. Hôm ấy không thể mang cả kiếm lẫn người bị thương đi ngay được.”
-
-Dạ Lan nhìn chuôi kiếm, rồi ngước lên.
-
-“Đa tạ.”
-
-Đây là lần đầu tiên nàng chủ động cảm ơn chàng.
-
-Cảnh Duy hơi bất ngờ.
-
-“Vì thanh kiếm?”
-
-“Vì các hạ không hỏi những điều ta không muốn nói.”
-
-Chàng nhìn nàng.
-
-Lần này, nàng không quay đi.
-
-Ánh mắt ấy vừa bình thản vừa sâu sắc, giống như nàng đã hiểu rõ chàng hơn những gì hai người từng nói với nhau.
-
-“Ta có rất nhiều điều muốn hỏi,” Cảnh Duy đáp. “Nhưng không phải câu hỏi nào cũng cần một câu trả lời ngay lập tức.”
-
-Dạ Lan khẽ mỉm cười.
-
-“Vô Danh Các chủ quả nhiên khác lời đồn.”
-
-“Lời đồn nói gì?”
-
-“Thần bí. Khó gặp. Không ai chịu thiệt trước mặt các hạ.”
-
-“Còn nàng thấy sao?”
-
-Dạ Lan nhìn chàng từ đầu đến chân, vẻ lạnh nhạt trong mắt thoáng pha chút ý cười.
-
-“Rất biết chịu thiệt.”
-
-Cảnh Duy ngẩn ra, rồi cười thành tiếng.
-
-Hóa ra nàng cũng biết trêu người.
-
-Chỉ có điều trêu xong, nàng lại thản nhiên như chưa từng nói gì.
-
-Nắng chiều rọi qua song cửa.
-
-Trong một thoáng, Cảnh Duy không nhìn thấy nữ sát thủ nổi danh Quy Nguyên Lâu nữa.
-
-Chàng chỉ thấy một thiếu nữ hai mươi ba tuổi đang ngồi trước mắt, có đôi mắt khiến lòng người xao động, và một nét bướng bỉnh rất khó gọi tên.
-
-***
-
-Trước lúc rời phòng, Cảnh Duy quay lại dặn:
-
-“Nếu muốn đi dạo, đợi thêm ít ngày.”
-
-Dạ Lan liếc nhìn đôi chân mình.
+“Đêm ấy, cô nương đã bị thương rất nặng.”
 
 “Ta biết.”
 
-“Ta chỉ sợ cô nương lại muốn chứng minh mình không sao.”
+“Ta cũng biết cô nương là Dạ Lan của Quy Nguyên Lâu.”
 
-Nàng nhướng mày.
+Nàng nhìn chàng. Ánh mắt bình thản, không có ý đề phòng hay lấy lòng.
 
-Cảnh Duy mỉm cười, rất biết điều mà bước ra ngoài trước khi nàng kịp đáp.
+“Vậy mà các hạ vẫn cứu?”
 
-Dạ Lan nhìn cánh cửa.
+“Nếu vì thân phận của một người mà mặc họ chết ngay trước mắt, e rằng ta chẳng còn nhận ra chính mình nữa.”
 
-Lần này, nàng không cố nén nụ cười.
+Chàng ngừng một chút, rồi nói:
 
-Nó hiện lên rất nhẹ, đủ để gương mặt thường ngày lạnh như sương của nàng bỗng trở nên mềm mại.
+“Huống hồ, trước khi ngã xuống, cô nương còn trợ kiếm cho ta. Ta không có thói quen bỏ mặc người vừa cùng mình trải qua một trận sinh tử.”
 
-Mười lăm năm trước, nàng đã quen nhìn theo bóng dáng chàng.
+Dạ Lan không hỏi thêm.
 
-Mười lăm năm sau, dường như vẫn vậy.
+Nàng bước về phía bàn. Đến bước cuối cùng, thân hình hơi chậm lại vì vết thương, nhưng vẻ mặt vẫn không đổi.
 
-Nhưng nàng hiểu rõ mình không thể ở đây mãi.
+Tạ Cảnh Duy kéo ghế ra.
 
-Dạ Lan của Quy Nguyên Lâu không phải một thân phận muốn bỏ là bỏ. Những ân oán nàng mang theo sẽ chẳng vì một gian phòng ấm áp và vài chén thuốc mà biến mất.
+“Ngồi đi. Chén thuốc này nguội rồi sẽ đắng hơn.”
 
-Nàng không sợ những điều ấy tìm đến mình.
+“Thuốc nào chẳng đắng.”
 
-Chỉ sợ chúng tìm đến chàng.
+“Vậy ta không tranh luận với cô nương nữa.”
 
-Nàng cúi đầu nhìn lệnh bài có chữ *Dạ* cùng đóa hoa lan.
+Chàng đáp nhẹ nhàng, khóe môi thoáng cong.
 
-Rồi nàng cất nó vào trong áo.
+Dạ Lan ngồi xuống, cầm chén thuốc lên uống từng ngụm, không nhăn mặt lấy một lần.
 
-Khi vết thương lành, nàng sẽ đi.
+Ngoài kia, Vô Danh Các vẫn tiếp tục một buổi sáng bận rộn. Những tiếng bước chân qua cầu đá, tiếng giấy cuộn được trao tay, tiếng nước chảy dưới hiên cứ thế hòa vào nhau.
 
-Ít nhất, nàng tự nhủ như thế.
+Cảnh Duy chờ nàng đặt chén xuống mới đứng dậy.
+
+“Ta còn chút việc phải xử lý. Nếu cần gì, cô nương cứ bảo người trong viện.”
+
+“Ừm.”
+
+Chàng nhìn nàng thêm một lần rồi rời phòng.
+
+Dạ Lan không tiễn, cũng không nhìn theo.
+
+Nàng chỉ đưa mắt trở lại khung cửa, nơi ánh nắng đã dịch khỏi cây cầu trắng một đoạn dài.
 
 ***
 
-Trong thư phòng, Tạ Cảnh Duy lại mở những trang ghi chép về Chu gia.
+Vài ngày sau, những người hầu trong khách viện dần quen với vị khách đặc biệt ấy.
 
-Ánh chiều đã nhạt.
+Dạ Lan uống thuốc đúng giờ, thay băng theo lời thầy thuốc, phần lớn thời gian ở yên trong phòng. Có lúc nàng ngồi đọc một quyển sách lấy trên giá, có lúc đứng ngoài hiên ngắm cá dưới hồ. Nàng không sai bảo nhiều, cũng chẳng tìm chuyện với ai.
 
-Chàng đọc từng dòng một, rồi dừng ở những ghi nhận cũ về đôi mắt mà bản thân từng tận mắt thấy khi còn là một thiếu niên mười một tuổi.
+Những người từng nghe danh nữ sát thủ Quy Nguyên Lâu lúc đầu còn dè chừng. Nhưng nàng không gây sự, không đòi rời đi, thậm chí khi được nhắc đến giờ nghỉ còn lặng lẽ trở vào phòng.
 
-Đôi mắt nâu thẫm.
+Chỉ có đôi mắt bình thản đến lạnh lẽo ấy vẫn khiến người ta khó đoán nàng đang nghĩ gì.
 
-Sắc đỏ chỉ hiện ra khi có ánh sáng phù hợp.
+Trong khi khách viện yên tĩnh, thư phòng Tạ Cảnh Duy chưa có ngày nào vắng người đưa tin.
 
-Một đặc điểm hiếm gặp, nhưng không phải chỉ dựa vào đó là có thể nhận thân.
+Vụ án Tống Hoài Lễ đã vượt xa một cuộc ám sát trong đêm thành thân.
 
-Chàng biết điều ấy.
+Các bản ghi chép đầu tiên xác nhận hắn từng cưỡng ép nhiều cô gái nhà lành vào phủ làm tân nương. Có người được báo đã bệnh chết sau hôn lễ. Có người bỗng dưng biến mất, đến cả một nắm tro cũng không được đưa về quê cũ. Những lá đơn kêu oan từ nhiều năm trước nằm rải rác ở các nha môn, câu chữ khác nhau nhưng đều gặp một kết cục: không ai trả lời.
 
-Chàng cũng biết mình không nên vì một hy vọng xa xôi mà ép một người xa lạ mang lấy thân phận của người đã khuất.
+Đêm Tống Hoài Lễ chết, La Trọng Sơn cũng bỏ mạng dưới kiếm.
 
-Vậy mà khi nghĩ đến Dạ Lan, hy vọng ấy vẫn lặng lẽ trỗi dậy.
+Cái chết của hai kẻ ấy khiến những người trong phủ vốn im miệng bắt đầu nói.
+
+Một bà vú già kể đã nhiều lần thấy La Trọng Sơn mang những chiếc hòm nặng ra sân sau lúc đêm khuya. Một gia nhân khác nhớ rõ mỗi lần phủ có tân nương mới, khu vườn phía tây đều bị cấm đến gần trong vài ngày. Có người từng nghe tiếng đào đất sau bức tường, nhưng vì sợ nên giả vờ không biết.
+
+Từng lời khai riêng lẻ chưa đủ làm chứng cứ. Khi đặt chúng cạnh nhau, lại có những chỗ khớp đến đáng sợ.
+
+Tạ Cảnh Duy trải bản đồ phủ Tống ra bàn, dùng đầu ngón tay chỉ vào một góc sân nhỏ nằm xa tân phòng.
+
+“Chỗ này là gì?”
+
+Người đứng đối diện đáp:
+
+“Một khu vườn bỏ không. Trước kia có giếng, nghe nói đã cạn từ lâu.”
+
+“Đã kiểm tra chưa?”
+
+“Người của chúng ta đang đến đó.”
+
+Cảnh Duy nhìn dấu mực khoanh quanh góc sân.
+
+“Dặn họ cẩn thận. Nếu thật sự tìm thấy thứ gì, trước hết phải ghi nhận rõ ràng. Đừng để một dấu vết nào mất đi.”
+
+Người nhận lệnh cúi đầu lui xuống.
+
+Đến chiều, tin báo trở về.
+
+Bức tường sau vườn đã che khuất miệng một chiếc giếng cạn. Trên giếng có mấy phiến đá lớn đặt chồng, bên ngoài phủ đất và cỏ khô, thoạt nhìn tưởng chỉ là một đống đá cũ không ai dùng đến.
+
+Khi dời những phiến đá ấy ra, người của Vô Danh Các nhìn thấy xương trắng dưới đáy giếng.
+
+Không phải một người.
+
+Hài cốt chồng chất qua nhiều lớp đất mục, có những bộ còn vương mảnh vải đã rách nát. Xen giữa là trâm cài, vòng tay, khuy áo và những vật nhỏ người ta từng mang theo bên mình.
+
+Một gia nhân vừa nhìn xuống đã ngã ngồi trên nền đất.
+
+Không ai lên tiếng hồi lâu.
+
+Sau cùng, người phụ trách bảo đừng để bất cứ kẻ nào tùy tiện bước vào khu vườn. Một nhóm ở lại ghi chép, một nhóm chuẩn bị đưa những phần hài cốt có thể thu nhặt được lên khỏi giếng.
+
+Họ làm rất chậm.
+
+Mỗi bộ xương, mỗi mảnh y phục còn nhận ra được đều được đặt riêng, ghi lại vị trí tìm thấy. Những món di vật được gói trong vải sạch, buộc thẻ để sau này còn có đường lần tìm thân nhân.
+
+Tin tức chẳng bao lâu đã lan khỏi phủ Tống, khiến cả một vùng xôn xao.
+
+Quan phủ cũng nhận được tin.
+
+Khi Lưu Viễn Trí dẫn người đến nơi, người của Vô Danh Các đã có mặt từ trước. Trong khu vườn từng bị bỏ quên, những tấm vải trắng được trải ngay ngắn dưới mái che. Không còn cảnh gia nhân chạy tán loạn như đêm án mạng; chỉ có người ghi sổ, người thu nhặt di vật, người cẩn trọng đưa hài cốt ra khỏi giếng.
+
+Lưu Viễn Trí đi một vòng, sắc mặt mỗi lúc một trầm.
+
+“Các ngươi là người của Vô Danh Các?”
+
+Người phụ trách bước lên thi lễ.
+
+“Bẩm đại nhân, chúng tôi phụng lệnh Các chủ đến điều tra vụ án. Khi phát hiện giếng cạn, đã cho người bảo vệ hiện trường và ghi chép mọi thứ tìm được. Sổ cùng vật chứng đều có thể trình quan phủ kiểm tra.”
+
+Lưu Viễn Trí cúi nhìn những thẻ giấy đặt cạnh từng món đồ.
+
+“Có biết họ là ai chưa?”
+
+“Chưa thể nhận đủ. Chúng tôi xin được tiếp tục dò tìm thân nhân của các cô nương, đưa hài cốt về cho người nhà nhận, nếu còn người nhận. Những ai không tìm được gia quyến, Vô Danh Các nguyện thay họ lo liệu việc an táng.”
+
+Vị quan nhìn những tấm vải trắng hồi lâu.
+
+Cuối cùng, ông gật đầu.
+
+“Cứ theo đó mà làm. Hồ sơ và danh sách vật chứng phải lưu lại một bản tại nha môn. Nếu tìm được gia quyến, trước khi an táng hãy báo để đối chiếu.”
+
+“Tuân lệnh.”
+
+Lưu Viễn Trí quay mặt đi, đôi mày nhíu chặt.
+
+Nhiều năm qua, người ta chỉ thấy cổng phủ Tống Hoài Lễ giăng đèn đỏ hết lần này đến lần khác.
+
+Không ai ngờ dưới những ngọn đèn mừng ấy lại có một chiếc giếng như vậy.
+
+***
+
+Tin từ phủ Tống được đưa về Vô Danh Các khi trời vừa tối.
+
+Tạ Cảnh Duy đọc hết bản ghi chép mà không nói gì.
+
+Trên trang giấy đầu tiên là vị trí giếng cạn và số hài cốt đã đưa lên được. Các trang sau liệt kê tên những người từng bị ép gả vào phủ, lời khai của gia nhân, rồi đến những vật nhỏ thu được giữa các lớp đất đá.
+
+Có những dòng chỉ ghi: *Không xác định được thân phận.*
+
+Chàng đọc lại dòng ấy hai lần.
+
+Đối với Tống Hoài Lễ, những cô gái kia có lẽ chỉ là những tân nương có thể bị thay thế. Đối với người nhà họ, mỗi cái tên không tìm được lại là một cuộc chờ đợi không có ngày kết thúc.
+
+“Việc tìm thân nhân phải tiếp tục,” chàng nói với người đưa tin. “Nếu cần đi xa, cứ đi. Có thể hoàn lại di vật cho bao nhiêu người thì làm bấy nhiêu.”
+
+“Vâng, Các chủ.”
+
+“Còn những kẻ giúp Tống Hoài Lễ che đậy việc này?”
+
+“Đang tiếp tục tra. La Trọng Sơn trực tiếp lo phần lớn những việc khuất tất, nhưng hắn không thể tự mình che mắt tất cả mọi người.”
+
+“Ta cũng nghĩ vậy.”
 
 Cảnh Duy khép tập giấy.
 
-Bên ngoài, cơn gió đưa hương thuốc thoảng qua hành lang.
+Tên Tống Hoài Lễ đã chết. La Trọng Sơn cũng không còn.
 
-Chàng nhớ câu nàng hỏi ban sáng.
+Song những đơn kêu oan bị bỏ qua, những cuộc hôn nhân ép buộc nối tiếp nhau và những người im lặng suốt nhiều năm vẫn ở đó, như những mối chỉ đen chưa được gỡ khỏi tấm lụa.
 
-*Nếu từng gặp, Các chủ có nhớ không?*
+Chàng nhớ lại lời Dạ Lan.
 
-Có.
+*Ta thích giết thì giết thôi.*
 
-Nếu thật sự là người ấy, chàng đã nhớ suốt mười lăm năm.
+Đêm ấy, chàng từng nghĩ để Tống Hoài Lễ sống có thể giúp lần ra những kẻ đứng phía sau. Suy nghĩ ấy không sai.
 
-Tạ Cảnh Duy đứng dậy, bước tới bên cửa sổ.
+Nhưng sau khi tận mắt đọc những dòng ghi chép từ giếng cạn, chàng cũng không thể coi cái chết của tên quan tham chỉ là sự tùy hứng của một nữ sát thủ.
 
-Một ý nghĩ mà chàng đã cố giữ ở mức nghi vấn cuối cùng vẫn hiện lên, rõ ràng hơn tất cả những lần trước.
+Cảnh Duy đặt hồ sơ xuống.
 
-**Nếu Linh Linh chưa chết thì sao?**
+“Di vật đã đưa về đến đâu rồi?”
+
+“Một phần đang được đối chiếu với lời khai ở phủ Tống. Những thứ chưa xác định chủ nhân, chúng tôi đã mang về để tra cứu.”
+
+“Để trên bàn lớn trong thư phòng ta. Ta sẽ xem lại.”
+
+***
+
+Những ngày tiếp theo, vết thương Dạ Lan dần khép miệng.
+
+Nàng đã có thể đi chậm qua những hành lang gần khách viện mà không cần ai đỡ. Hôm ấy, thay cho bộ trung y trắng, nàng mặc một lớp áo tím nhạt màu khói, thắt đai lưng gọn gàng. Tóc đen được vấn hờ sau gáy, không cài trâm.
+
+Gió thổi qua dãy hành lang phía tây, mang theo hương lá non và tiếng nước từ hồ.
+
+Dạ Lan đi ngang một sân nhỏ có hai người đang quét lá, qua một cửa nguyệt môn, rồi men theo lối lát đá chạy dưới bóng trúc. Vô Danh Các rộng đến mức có những đoạn hành lang nhìn tưởng thông về cùng một sân, rốt cuộc lại dẫn tới hai tòa nhà khác nhau.
+
+Nàng bước qua một hiên gỗ yên tĩnh.
+
+Cuối hiên, cánh cửa một gian phòng mở hé. Bên trong không có tiếng người, chỉ có mùi giấy cũ và mực tàu. Qua khoảng cửa, những giá sách cao cùng một bức bình phong gỗ hiện ra dưới ánh nắng xế.
+
+Dạ Lan bước vào.
+
+Đây là thư phòng của Tạ Cảnh Duy.
+
+Trên án thư chính, công văn được xếp thành nhiều tập. Cạnh nghiên mực là bản đồ phủ Tống Hoài Lễ, một góc đã được đánh dấu bằng mực son. Trên chiếc bàn lớn sát cửa sổ đặt những khay gỗ nông, mỗi khay lót một lớp vải sạch.
+
+Trong đó có lược gãy, vòng tay bằng đồng, một đôi khuyên tai không còn đủ chiếc, mấy mảnh ngọc nhỏ, vài nút áo đã xỉn màu. Mỗi món đều kèm thẻ giấy ghi nơi tìm thấy, đôi khi thêm một dòng ngắn về manh mối nhận dạng.
+
+Dạ Lan đứng bên bàn.
+
+Ánh mắt nàng lướt qua những khay đồ, rồi dừng lại.
+
+Giữa một tấm vải màu nhạt có chiếc trâm gỗ.
+
+Trâm đã cũ, thân gỗ sẫm màu vì năm tháng. Ở đầu trâm, một đóa hoa mai được khắc bằng những đường dao mộc mạc. Một cánh hoa hơi ngắn hơn những cánh còn lại, khiến nét chạm trổ chẳng thật cân đối.
+
+Trên thân trâm vẫn còn vết máu khô.
+
+Dạ Lan không đưa tay ra.
+
+Nàng đứng đó, nhìn chiếc trâm rất lâu.
+
+Nắng xế dần dịch khỏi mép bàn. Ngoài sân có người đi qua, tiếng bước chân xa rồi gần, nhưng nàng vẫn không chuyển mắt.
+
+Sắc mặt nàng bình thản.
+
+Không ai có thể đoán được trong đôi mắt tĩnh lặng ấy đang có điều gì.
+
+Đúng lúc ấy, từ hành lang truyền tới một nhịp bước chân quen thuộc.
+
+Tạ Cảnh Duy vừa trở lại thư phòng đã thấy vị khách của mình đứng trước bàn di vật.
+
+Chàng thoáng dừng lại nơi ngưỡng cửa.
+
+Nàng không đụng vào bất cứ thứ gì. Hai tay buông tự nhiên bên người, ánh mắt đặt trên một chiếc trâm gỗ nhỏ đến mức nếu không nhìn kỹ, người ta sẽ dễ bỏ qua giữa những món đồ còn lại.
+
+“Chiếc trâm ấy nhìn quen sao?”
+
+“Không quen.”
+
+Giọng Dạ Lan đều đều, không chút ngập ngừng.
+
+Nàng quay đầu, đi ngang qua chàng rồi rời khỏi thư phòng.
+
+Tạ Cảnh Duy nhìn theo.
+
+Khi tiếng bước chân nàng đã khuất ngoài hiên, chàng mới bước đến bên bàn.
+
+Chiếc trâm gỗ nằm im trên tấm vải nhạt. Dưới ánh chiều, đóa mai khắc ở đầu trâm hiện ra rõ hơn, chẳng có gì quý giá, cũng không có vẻ đặc biệt so với những món trang sức thường thấy trong dân gian.
+
+Cảnh Duy cầm tấm thẻ bên cạnh lên xem.
+
+*Giếng cạn, phủ Tống. Chưa rõ chủ nhân.*
+
+Chàng đặt thẻ xuống.
+
+Trong phòng, mùi mực vẫn phảng phất. Trên chiếc bàn lớn có quá nhiều món đồ đang chờ được gọi đúng tên.
+
+Vậy mà vừa rồi, Dạ Lan chỉ nhìn một chiếc trâm.
+
+***
+
+Hai ngày sau, những đầu mối đầu tiên về di vật lần lượt được xác minh.
+
+Có đôi khuyên tai được nhận ra nhờ đường chạm trổ của một cửa hiệu đã đóng từ lâu. Có chiếc vòng đồng mang dấu sửa chữa ở mặt trong. Có những món đồ không còn ai đến nhận, bởi người thân của chủ nhân đã phiêu bạt, cũng có người từ lâu chẳng dám tin con gái mình còn sống.
+
+Tạ Cảnh Duy sai người tiếp tục lần theo từng dấu vết.
+
+Riêng chiếc trâm gỗ hoa mai, chàng yêu cầu đối chiếu kỹ hơn với danh sách tân nương và lời kể của những gia đình mất tích người thân.
+
+Đến cuối chiều, một người mang hồ sơ mới vào thư phòng.
+
+“Các chủ, đã tìm được người nhận ra chiếc trâm.”
+
+Cảnh Duy đặt bút xuống.
+
+“Là ai?”
+
+“Người thân của một cô nương từng bị đưa vào phủ Tống. Họ xác nhận chiếc trâm này thuộc về nàng, và lời khai cũ cũng khớp với thời gian nàng mất tích.”
+
+Người ấy dừng một nhịp, mở trang giấy đã đánh dấu.
+
+“Cô nương đó tên là Đại Mai.”
+
+Đầu ngón tay Tạ Cảnh Duy ngừng trên mép bàn.
+
+“Đại Mai?”
+
+“Vâng. Theo ghi chép, nàng vốn sống tại một con ngõ gần Chu gia năm xưa. Về sau gia đình chuyển đi nơi khác. Mấy năm trước, nàng bị ép đưa vào phủ Tống Hoài Lễ, rồi người nhà nhận được tin nàng đã chết vì bệnh. Thi thể không được trả về.”
+
+Cảnh Duy không nói gì.
+
+Người đưa tin tiếp tục trình những chi tiết xác nhận di vật. Nhưng đến câu cuối, chàng đã không còn nghe rõ từng chữ.
+
+Một con ngõ gần Chu gia.
+
+Đại Mai.
+
+Cái tên ấy đã ở rất xa trong ký ức, đến mức chàng tưởng mình sẽ chỉ gặp lại nó khi vô tình nhớ chuyện xưa.
+
+Thế mà giờ đây, nó nằm trên một tờ giấy kê những người chết dưới giếng cạn.
+
+“Ngươi để hồ sơ lại,” chàng nói.
+
+Người kia vâng lời, lặng lẽ lui ra.
+
+Tạ Cảnh Duy ngồi yên.
+
+Mười lăm năm trước, con ngõ ấy thường có tiếng trẻ con chạy đùa. Mùa nắng, những nhà gần nhau hay mở cửa, mùi bánh hấp từ bếp nhỏ lan khắp lối đi. Đại Mai là cô nương lớn hơn bọn trẻ vài tuổi, tính tình vui vẻ, gặp ai cũng dễ cười.
+
+Cảnh Duy nhớ có một lần Tiểu Linh chạy quá nhanh, suýt vấp trên bậc cửa. Đại Mai đứng gần đó kịp đỡ lấy nàng, vừa phủi bụi trên tay áo cô bé vừa cười:
+
+“Linh Linh, muội chậm một chút. Duy ca ca của muội có chạy mất đâu.”
+
+Tiểu Linh lúc ấy mới tám tuổi, còn chàng mười một.
+
+Cô bé lập tức phản đối điều gì đó, mặt mũi nghiêm túc đến mức Đại Mai càng cười lớn. Sau cùng, tỷ tỷ ấy chia cho hai đứa bánh còn ấm, dặn mang về ăn trước khi nguội.
+
+Một chuyện nhỏ đến mức nhiều năm không ai nhắc tới.
+
+Cảnh Duy vẫn nhớ tiếng cười ấy.
+
+Nhớ một người tỷ tỷ hay đứng ở đầu ngõ, thấy bọn trẻ chạy qua thì gọi với theo, khi thì nhắc coi chừng ngã, khi thì chìa ra vài chiếc bánh vừa làm.
+
+Chàng đã từng nghĩ, sau biến cố Chu gia, những người ở con ngõ cũ hẳn cũng mỗi người đi một ngả. Có lẽ Đại Mai đã lấy chồng, có một mái nhà bình yên ở nơi khác.
+
+Chàng chưa từng tưởng tượng đến chiếc giếng sau phủ Tống.
+
+Cảnh Duy chậm rãi nhìn xuống hồ sơ.
+
+Dòng chữ *chết vì bệnh* hiện ra ngay dưới tên nàng.
+
+Phía dưới lại là một lời khai khác, ghi rằng La Trọng Sơn đã cho người mang một chiếc hòm rời khỏi tân phòng vào đêm Đại Mai mất tích.
+
+Chàng nhắm mắt một thoáng.
+
+Không phải vì chưa từng nhìn thấy những ghi chép như thế. Trong suốt mấy ngày điều tra, chàng đã đọc quá nhiều tên người, quá nhiều ngày tháng kết thúc bằng một câu báo tử lạnh lùng.
+
+Nhưng cái tên lần này có gương mặt.
+
+Có giọng nói.
+
+Có một nụ cười mà chàng từng nghe giữa con ngõ đầy nắng.
+
+Khi mở mắt, chàng kéo chiếc khay gỗ lại gần.
+
+Chiếc trâm hoa mai nằm trên tấm vải sạch.
+
+Nó nhỏ và giản dị, trên thân còn vết máu đã khô. Một món đồ không thể tự kể chuyện, lại theo người chủ đi đến tận đáy giếng tối.
+
+Bỗng nhiên, hình ảnh Dạ Lan đứng trước chiếc bàn này trở lại rõ ràng trong trí nhớ chàng.
+
+Thiếu nữ áo tím khói.
+
+Dáng đứng yên lặng.
+
+Đôi mắt nâu thẫm không gợn sóng, dừng trên chiếc trâm rất lâu.
+
+*Chiếc trâm ấy nhìn quen sao?*
+
+*Không quen.*
+
+Tạ Cảnh Duy nhìn tấm thẻ nhỏ bên cạnh món di vật.
+
+Đêm đầu gặp nàng, chàng đã thấy một đôi mắt mang sắc đỏ ẩn sâu giống đôi mắt Chu gia. Nàng lại trạc tuổi Linh Linh nếu còn sống. Và giữa lúc máu trào nơi khóe môi, nữ sát thủ ấy từng nhìn chàng bằng ánh mắt mà người xa lạ không thể dễ dàng giải thích.
+
+Rồi khi tỉnh lại, nàng trở nên lạnh lùng đến mức mọi câu hỏi đều như tan biến trước vẻ bình thản ấy.
+
+Chàng chưa từng có đủ chứng cứ để tin nàng là người mình đã mất.
+
+Bây giờ lại thêm một chiếc trâm.
+
+Một người tỷ tỷ năm xưa.
+
+Và hai chữ *không quen*.
+
+Cảnh Duy đứng dậy, bước đến bên cửa sổ. Qua những lớp mái cong và rặng trúc, phía xa là khu khách viện nơi Dạ Lan đang dưỡng thương.
+
+Gió thổi qua, làm chiếc chuông đồng dưới hiên khẽ ngân.
+
+Chàng nhớ lại Đại Mai từng cười, nhớ một cô bé tám tuổi chạy theo mình giữa con ngõ cũ. Hai hình bóng thuộc về quãng đời tưởng đã khép lại, nay lại xuất hiện trong cùng một vụ án với nữ sát thủ của Quy Nguyên Lâu.
+
+Đại Mai đã chết.
+
+Tống Hoài Lễ cũng đã chết.
+
+Còn Dạ Lan, người ra tay giết hắn, lại đứng rất lâu trước di vật của Đại Mai rồi nói rằng mình không quen.
+
+Tạ Cảnh Duy quay lại nhìn chiếc trâm gỗ hoa mai.
+
+Lần đầu tiên, chàng thấy câu trả lời ngắn ngủi ấy còn để lại nhiều điều đáng hỏi hơn cả sự im lặng.
+
+**Nếu thật sự không quen, vì sao nàng lại nhìn chiếc trâm ấy lâu đến thế?**
