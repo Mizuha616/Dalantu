@@ -75,7 +75,8 @@ Bản Google Docs được tìm thấy:
 
 - Mở ở thời điểm tác giả đặt ra là **sau 5 ngày Dạ Lan ở Vô Danh Các dưỡng thương**; người của Quy Nguyên Lâu tìm đến.
 - Nhân vật ra mặt: **Dạ Thiên**, sát thủ sư huynh si tình, đến với **hai động cơ song song**: (a) thi hành lệnh đưa Dạ Lan về Quy Nguyên Lâu hỏi tội; (b) đích thân đến để bảo vệ nàng, tránh kẻ khác dùng vũ lực/không nương tay.
-- **NHIỆM VỤ GỐC** do Quy Nguyên Lâu giao cho Dạ Lan: **bắt sống/bắt cóc Tống Hoài Lễ, ép hắn khai ra bí mật về thủ pháp đào tạo quái nhân**. Nhưng nàng **tự ý giết Tống Hoài Lễ**, khiến nhiệm vụ bị phá vỡ và tổ chức muốn hỏi tội.
+- **PHÂN BIỆT HAI MỤC TIÊU — TÁC GIẢ ĐÃ CHỐT:** (1) **Lệnh của Quy Nguyên Lâu** là **bắt sống/bắt cóc Tống Hoài Lễ, ép hắn khai ra bí mật về thủ pháp đào tạo quái nhân**; (2) **nhiệm vụ Dạ Lan tự đặt ra** là **giết Tống Hoài Lễ**, mượn việc công để báo thù riêng cho Đại Mai. Nàng chủ động giết hắn, bất chấp lệnh tổ chức; đây là nét **vô pháp vô thiên, dám làm dám chịu** của Dạ Lan. Vì vậy Quy Nguyên Lâu muốn hỏi tội. Hai mục tiêu khác nhau, không coi chúng là một nhiệm vụ.
+- **GIẢ THUYẾT CẦN BÀN — CHƯA CHỐT:** Dạ Lan **có thể đã biết** vì sao Quy Nguyên Lâu cần thủ pháp chế tạo quái nhân, và cái chết của Tống Hoài Lễ có thể không chỉ vì tư thù. Chưa được khẳng định nàng biết gì, nắm chứng cứ gì hoặc định ngăn điều gì; không tự viết thành sự thật.
 - **La Trọng Sơn là “quái nhân thành công” mà Tống Hoài Lễ tạo ra**. La vẫn **đã chết trong chương 1**. Điều này là tri thức tác giả mới cung cấp; **chưa xác định** nhân vật nào tại thời điểm chương 3 biết được bản chất thật của La.
 - Hình thức trừng phạt sai lệnh của Quy Nguyên Lâu: **tra tấn**. Chưa xác định dụng cụ, thủ tục, mức độ và người phán quyết; **không tự sáng tác cảnh tra tấn**.
 - **Dạ Lan nhất quyết không trở về**. Nàng không sợ hình phạt; muốn bắt nàng đi phải bước qua xác nàng. Nàng **đã có một kế hoạch/mục tiêu mới**, dây dưa đến vụ Tống Hoài Lễ và La Trọng Sơn. **Chưa biết mục tiêu cụ thể**, tuyệt đối không tự thay bằng “truy tìm La Trọng Sơn còn sống”.
@@ -91,7 +92,8 @@ Bản Google Docs được tìm thấy:
 | Tạ Cảnh Duy là Vô Danh Các chủ | **Biết** sau khi tỉnh | **Biết** | Chưa rõ mức độ hiểu về chàng | Biết |
 | Đại Mai là tỷ tỷ quen biết thuở nhỏ | **Biết Đại Mai trong quá khứ**; nhìn trâm rất lâu nhưng nói “Không quen”, truyện chưa xác nhận điều nàng thực sự nghĩ | **Biết** sau điều tra cuối chương 2 | Chưa rõ | Biết |
 | Tống Hoài Lễ và La Trọng Sơn đã chết | **Biết họ chết trong cuộc chiến** | **Biết** | Chưa xác định đã được báo đầy đủ thế nào | **Biết** |
-| Mục tiêu nhiệm vụ gốc là bắt sống Tống để lấy thủ pháp | **Biết** | **Chưa rõ, KHÔNG MẶC ĐỊNH BIẾT** | **Biết lệnh và trách nhiệm đưa nàng về** | **Chưa được tiết lộ trong hai chương** |
+| Lệnh Quy Nguyên Lâu là bắt sống Tống; Dạ Lan tự đặt mục tiêu giết hắn | **Biết cả lệnh và mục tiêu riêng** | **Chưa rõ lệnh gốc, KHÔNG MẶC ĐỊNH BIẾT** | **Biết lệnh và trách nhiệm đưa nàng về** | **Chưa được tiết lộ trong hai chương** |
+| Vì sao Quy Nguyên Lâu muốn thủ pháp quái nhân | **CÓ THỂ BIẾT — chưa chốt** | Chưa rõ | Chưa rõ | Chưa được tiết lộ |
 | La Trọng Sơn là quái nhân thành công | Chưa rõ | Chưa rõ | Chưa rõ | Chưa được tiết lộ trong hai chương |
 | Dạ Thiên yêu Dạ Lan | Chưa rõ | Chưa rõ | **Biết tình cảm của chính mình** | Thiết lập tác giả, chưa lên trang |
 | Dạ Hành có động cơ gì khi bắt cóc Tiểu Linh | Chưa rõ | Chưa rõ | Chưa rõ | Chưa rõ |
@@ -100,7 +102,7 @@ Bản Google Docs được tìm thấy:
 
 ## 7. Điểm cần đối chiếu, KHÔNG tự sửa [CẦN ĐỐI CHIẾU]
 
-1. **Mục tiêu lệnh gốc:** Chương 1 có câu **“Nhiệm vụ của nàng vốn đã hoàn thành”** sau khi Tống Hoài Lễ chết; vài hồ sơ cũ cũng gọi đây là “nhiệm vụ ám sát”. Thiết lập mới của tác giả nói rõ lệnh gốc là **bắt sống, không phải giết**. Cần tác giả quyết định về sau có chỉnh câu chữ chương 1 hoặc để đó như góc nhìn chủ quan của Dạ Lan; **chưa sửa chương**.
+1. **ĐÃ GIẢI THÍCH — KHÔNG CẦN COI LÀ MÂU THUẪN CỐT TRUYỆN:** Chương 1 có câu **“Nhiệm vụ của nàng vốn đã hoàn thành”** sau khi Tống Hoài Lễ chết. Tác giả đã phân biệt: **lệnh Quy Nguyên Lâu = bắt sống để tra hỏi**; **mục tiêu Dạ Lan tự đặt ra = giết để trả thù riêng**. Vì vậy câu văn có thể hiểu theo góc nhìn/mục tiêu của Dạ Lan; không tự sửa bản chương đã duyệt. Nếu biên tập sau này cần làm rõ giọng kể thì phải đợi tác giả cho phép.
 2. **Niên biểu 5 ngày:** Chương 2 đi qua “vài ngày sau” và “hai ngày sau” cảnh chiếc trâm. Tác giả ấn định chương 3 mở sau **5 ngày dưỡng thương**. Cần đối chiếu chính xác các ngày tương đối khi xây nhịp cảnh; **không tự xác quyết mốc ngày nào cho từng cảnh chương 2**.
 3. **Hồ sơ cũ chưa kịp cập nhật:** `nhan-vat/DA_HANH.md`, `boi-canh/QUY_NGUYEN_LAU.md`, `nhan-vat/CHU_TIEU_LINH_DA_LAN.md` còn viết “chưa rõ ai trực tiếp huấn luyện”, “chưa rõ người sáng lập”, v.v. Phần **tác giả mới xác nhận** ở metadata này phải được đối chiếu trước khi viết, nhưng không tự sửa/ghi đè các hồ sơ cũ.
 4. **Đại Mai và động cơ:** Chương 2 tạo đủ manh mối để độc giả hiểu lý do Dạ Lan giết Tống; **không tự thêm một lời thú tội hoặc xác nhận Dạ Lan đã điều tra/vật lộn tâm lý ra sao** khi chưa có cảnh do tác giả duyệt.
@@ -108,7 +110,7 @@ Bản Google Docs được tìm thấy:
 
 ## 8. Câu hỏi chưa được chốt — dành cho thảo luận sau
 
-- Kế hoạch cụ thể của Dạ Lan sau khi từ chối trở về là gì? Gắn với thủ pháp quái nhân như thế nào?
+- Kế hoạch cụ thể của Dạ Lan sau khi từ chối trở về là gì? Gắn với thủ pháp quái nhân như thế nào? **Nếu nàng biết mục đích Quy Nguyên Lâu muốn có thủ pháp**, nàng biết từ khi nào và bằng chứng gì? Chưa có câu trả lời chính thức.
 - Dạ Thiên, Dạ Lan, Cảnh Duy tại lúc đó biết gì về bí mật La Trọng Sơn? Chứng cứ về quái nhân còn tồn tại không?
 - Dạ Thiên hành xử như thế nào khi Tạ Cảnh Duy ngăn việc đưa nàng đi? Dạ Lan đáp lại sư huynh ra sao?
 - Mức độ quyền lực và hình thức tra tấn của Quy Nguyên Lâu; vai trò Dạ Hành trong chuyện xử phạt.
