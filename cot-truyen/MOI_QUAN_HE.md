@@ -33,3 +33,7 @@
 
 ## Quan hệ khác
 Chưa được thiết lập thêm.
+
+## Tạ Cảnh Duy ↔ Dạ Lan — hướng chuyển biến sau cảnh đêm Mãn Nguyệt Đường (chốt hướng 17/11/2026)
+- Khi Dạ Lan (nếu dùng cảnh ngủ đang thảo luận) **vô thức đáp “Duy ca ca”** sau tiếng gọi “Tiểu Linh”, chàng có cơ sở tin **khoảng 90%** nàng là hôn thê mình, chưa xác minh tuyệt đối. **Chàng không ép nàng thú nhận**; ngay cả khi sáng hôm sau nàng đáp “Tạ các chủ nên về rồi”, chàng tôn trọng và không gặng hỏi.
+- Chàng **âm thầm điều tra lại huyết án Chu gia năm xưa** và có thêm lý do **chủ động trở lại Mãn Nguyệt Đường tìm gặp nàng**. Đây là động cơ tình cảm lẫn điều tra, không phải hành vi chiếm hữu; chưa xác lập kết quả điều tra, diễn biến cảnh, hay chương 3 được duyệt.
