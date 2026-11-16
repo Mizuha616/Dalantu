@@ -33,6 +33,11 @@
 - Ông đã huấn luyện nàng thành sát thủ **sẵn sàng chết vì nhiệm vụ**; nếu có ngày ông **truy sát nàng**, nàng **sẵn sàng giao chiến sinh tử**. Đây là một khả năng giả định, **không chốt rằng cuộc truy sát xảy ra**.
 - Không viết nàng sợ sư phụ, xem ép dịch dung là ân nghĩa, hoặc tự động quy phục vì quan hệ sư đồ.
 
+## Ngôn hành khi say — ĐÃ CHỐT 17/11/2026
+- Dạ Lan **ít lời, lạnh lùng và bá đạo** ngay cả khi có rượu; **khi say lại rất bạo, táo bạo trong hành động**, không biến thành người nói nhiều, đấu khẩu dai dẳng hay ngượng ngùng trẻ con.
+- Trong cảnh tối ở Mãn Nguyệt Đường, lúc Các chủ nhắc uống thuốc, tác giả gợi ý nàng có thể chỉ nói đúng một chữ **“Cút”** rồi **tiếp tục uống rượu**, không thèm đôi co. Đây là **phương án thoại đang thử**, chưa phải câu văn chính thức của chương 3.
+- Không tự coi sự táo bạo lúc say là đồng ý cho người khác vượt ranh giới riêng tư hoặc tự tiện xông vào phòng tắm.
+
 ## Ngoại hình và khí chất — ĐÃ CHỐT (15/11/2026)
 - **Chiều cao:** 1m65.
 - **Đôi tay:** Bàn tay với **những ngón tay thon nhỏ, trắng ngần**.
