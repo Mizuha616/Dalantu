@@ -53,7 +53,7 @@
 ## Danh xưng và cách gọi — ĐÃ CHỐT
 
 - **Tạ Cảnh Duy** là **Vô Danh Các chủ**: quản lý tổ chức **thu thập và mua bán thông tin tình báo trong giang hồ**, **không phải tổ chức sát thủ**. Vô Danh Các có **chiều sâu vượt ra ngoài việc bán thông tin** nhưng chưa chốt chức năng bí mật.
-- **Chỉ Chu Tiểu Linh** gọi chàng là **“Duy ca ca”**; chàng gọi nàng là **“Linh Linh”**.
+- **Chỉ Chu Tiểu Linh** gọi chàng là **“Duy ca ca”**; chàng gọi nàng là **“Linh Linh”**. **Đây là danh xưng riêng biệt, không có nữ tử khác gọi Cảnh Duy như vậy**. Nếu Dạ Lan trong giấc ngủ vô thức đáp “Duy ca ca” khi chàng gọi “Tiểu Linh”, Cảnh Duy phải nhận ra trọng lượng gần như xác nhận thân phận của tiếng gọi ấy, không xem như trùng hợp hay chỉ nghi ngờ thoáng qua. Cảnh ngủ vẫn chỉ là ý tưởng đang thảo luận, chưa được tác giả chốt vào chương 3.
 - Danh xưng và chức vị không thay đổi nguyên tắc: tính cách của nhân vật giữ nguyên Nguyễn Duy, không tự thêm tính cách kiểu Các chủ.
 
 ### Ký ức về Chu gia — ĐÃ CHỐT
