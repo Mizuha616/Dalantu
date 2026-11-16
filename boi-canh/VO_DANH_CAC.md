@@ -5,6 +5,7 @@
 
 ## Đã chốt
 - **Chủ nhân / Các chủ: Tạ Cảnh Duy**, nam chính (26 tuổi theo hồ sơ hiện tại).
+- **Thực lực võ lâm — TÁC GIẢ CHỐT 17/11/2026:** Vô Danh Các **quy tụ nhiều cao thủ võ lâm**. Bản thân Các chủ **Tạ Cảnh Duy cũng là một võ lâm nhân kiệt**. Vì vậy đây **không phải nơi có thể dễ dàng uy hiếp bằng vũ lực**, càng không thể mặc nhiên để một người khách đơn độc tùy tiện xông vào bắt người. Chưa chốt cụ thể đội ngũ, xếp hạng, môn phái, chiêu thức hoặc tương quan thắng bại.
 - Vô Danh Các là **đầu mối thu thập và giao dịch tin tức tình báo** trong giang hồ, nhưng **còn có chiều sâu/khả năng khác chưa được tác giả tiết lộ**.
 - **Thành quả tình báo đã chốt 17/11/2026:** Tổ chức đã **biết kẻ đứng sau chuỗi tửu lâu Mãn Nguyệt Đường là Dạ Lan từ trước khi Cảnh Duy biết dung mạo của nữ sát thủ này**. Đến lúc nàng nói muốn rời đi, Cảnh Duy **biết/đoán được nàng định về Mãn Nguyệt Đường**. Chàng **không biết nàng là Chu Tiểu Linh**, nên không lẫn việc nắm danh xưng sát thủ với tìm ra danh tính thật. Không tự định danh hoặc thêm cơ sở bí mật khi chưa được chốt.
 - **Sau nhiệm vụ giá y đỏ:** Tạ Cảnh Duy **đưa Dạ Lan trúng một kiếm chí mạng về Vô Danh Các để cứu chữa**. Chưa chốt ai chữa, biện pháp cứu chữa hay cơ sở vật chất cụ thể.
