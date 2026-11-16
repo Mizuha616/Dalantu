@@ -73,9 +73,10 @@ Bản Google Docs được tìm thấy:
 
 ## 5. Cốt truyện chương 3 đang thảo luận [TÁC GIẢ CHỐT, CHƯA VIẾT]
 
-- Mở ở thời điểm tác giả đặt ra là **sau 5 ngày Dạ Lan ở Vô Danh Các dưỡng thương**; người của Quy Nguyên Lâu tìm đến.
+- Mở ở thời điểm tác giả đặt ra là **sau 5 ngày Dạ Lan ở Vô Danh Các dưỡng thương**; người của Quy Nguyên Lâu tìm đến. **Niên biểu hợp lệ đã được tác giả xác nhận:** quãng “vài ngày” ở chương 2 có thể là **3 ngày**, cộng **2 ngày sau** cảnh trâm = **5 ngày**; không còn xung đột mốc thời gian cần xử lý.
 - Nhân vật ra mặt: **Dạ Thiên**, sát thủ sư huynh si tình, đến với **hai động cơ song song**: (a) thi hành lệnh đưa Dạ Lan về Quy Nguyên Lâu hỏi tội; (b) đích thân đến để bảo vệ nàng, tránh kẻ khác dùng vũ lực/không nương tay.
 - **PHÂN BIỆT HAI MỤC TIÊU — TÁC GIẢ ĐÃ CHỐT:** (1) **Lệnh của Quy Nguyên Lâu** là **bắt sống/bắt cóc Tống Hoài Lễ, ép hắn khai ra bí mật về thủ pháp đào tạo quái nhân**; (2) **nhiệm vụ Dạ Lan tự đặt ra** là **giết Tống Hoài Lễ**, mượn việc công để báo thù riêng cho Đại Mai. Nàng chủ động giết hắn, bất chấp lệnh tổ chức; đây là nét **vô pháp vô thiên, dám làm dám chịu** của Dạ Lan. Vì vậy Quy Nguyên Lâu muốn hỏi tội. Hai mục tiêu khác nhau, không coi chúng là một nhiệm vụ.
+- **THÁI ĐỘ ĐÃ CHỐT:** Dạ Lan **chưa từng tin tưởng Quy Nguyên Lâu**. Đây là lập trường nhất quán, không tự đồng nhất với việc nàng đã biết cụ thể mọi bí mật của tổ chức.
 - **GIẢ THUYẾT CẦN BÀN — CHƯA CHỐT:** Dạ Lan **có thể đã biết** vì sao Quy Nguyên Lâu cần thủ pháp chế tạo quái nhân, và cái chết của Tống Hoài Lễ có thể không chỉ vì tư thù. Chưa được khẳng định nàng biết gì, nắm chứng cứ gì hoặc định ngăn điều gì; không tự viết thành sự thật.
 - **La Trọng Sơn là “quái nhân thành công” mà Tống Hoài Lễ tạo ra**. La vẫn **đã chết trong chương 1**. Điều này là tri thức tác giả mới cung cấp; **chưa xác định** nhân vật nào tại thời điểm chương 3 biết được bản chất thật của La.
 - Hình thức trừng phạt sai lệnh của Quy Nguyên Lâu: **tra tấn**. Chưa xác định dụng cụ, thủ tục, mức độ và người phán quyết; **không tự sáng tác cảnh tra tấn**.
@@ -94,6 +95,7 @@ Bản Google Docs được tìm thấy:
 | Tống Hoài Lễ và La Trọng Sơn đã chết | **Biết họ chết trong cuộc chiến** | **Biết** | Chưa xác định đã được báo đầy đủ thế nào | **Biết** |
 | Lệnh Quy Nguyên Lâu là bắt sống Tống; Dạ Lan tự đặt mục tiêu giết hắn | **Biết cả lệnh và mục tiêu riêng** | **Chưa rõ lệnh gốc, KHÔNG MẶC ĐỊNH BIẾT** | **Biết lệnh và trách nhiệm đưa nàng về** | **Chưa được tiết lộ trong hai chương** |
 | Vì sao Quy Nguyên Lâu muốn thủ pháp quái nhân | **CÓ THỂ BIẾT — chưa chốt** | Chưa rõ | Chưa rõ | Chưa được tiết lộ |
+| Lập trường của Dạ Lan đối với Quy Nguyên Lâu | **Chưa từng tin tưởng tổ chức** | Chưa rõ | Không tự suy đoán hắn biết suy nghĩ nàng | Chưa thể kết luận từ 2 chương |
 | La Trọng Sơn là quái nhân thành công | Chưa rõ | Chưa rõ | Chưa rõ | Chưa được tiết lộ trong hai chương |
 | Dạ Thiên yêu Dạ Lan | Chưa rõ | Chưa rõ | **Biết tình cảm của chính mình** | Thiết lập tác giả, chưa lên trang |
 | Dạ Hành có động cơ gì khi bắt cóc Tiểu Linh | Chưa rõ | Chưa rõ | Chưa rõ | Chưa rõ |
@@ -103,7 +105,7 @@ Bản Google Docs được tìm thấy:
 ## 7. Điểm cần đối chiếu, KHÔNG tự sửa [CẦN ĐỐI CHIẾU]
 
 1. **ĐÃ GIẢI THÍCH — KHÔNG CẦN COI LÀ MÂU THUẪN CỐT TRUYỆN:** Chương 1 có câu **“Nhiệm vụ của nàng vốn đã hoàn thành”** sau khi Tống Hoài Lễ chết. Tác giả đã phân biệt: **lệnh Quy Nguyên Lâu = bắt sống để tra hỏi**; **mục tiêu Dạ Lan tự đặt ra = giết để trả thù riêng**. Vì vậy câu văn có thể hiểu theo góc nhìn/mục tiêu của Dạ Lan; không tự sửa bản chương đã duyệt. Nếu biên tập sau này cần làm rõ giọng kể thì phải đợi tác giả cho phép.
-2. **Niên biểu 5 ngày:** Chương 2 đi qua “vài ngày sau” và “hai ngày sau” cảnh chiếc trâm. Tác giả ấn định chương 3 mở sau **5 ngày dưỡng thương**. Cần đối chiếu chính xác các ngày tương đối khi xây nhịp cảnh; **không tự xác quyết mốc ngày nào cho từng cảnh chương 2**.
+2. **ĐÃ GIẢI QUYẾT — Mốc 5 ngày:** Theo tác giả, “vài ngày” ở chương 2 có thể hiểu là **3 ngày**, rồi **2 ngày sau** cảnh trâm = **5 ngày**. Chương 3 mở sau năm ngày dưỡng thương là phù hợp, không cần sửa hai chương trước. Giữ cách nói tương đối trong văn bản chính thức.
 3. **Hồ sơ cũ chưa kịp cập nhật:** `nhan-vat/DA_HANH.md`, `boi-canh/QUY_NGUYEN_LAU.md`, `nhan-vat/CHU_TIEU_LINH_DA_LAN.md` còn viết “chưa rõ ai trực tiếp huấn luyện”, “chưa rõ người sáng lập”, v.v. Phần **tác giả mới xác nhận** ở metadata này phải được đối chiếu trước khi viết, nhưng không tự sửa/ghi đè các hồ sơ cũ.
 4. **Đại Mai và động cơ:** Chương 2 tạo đủ manh mối để độc giả hiểu lý do Dạ Lan giết Tống; **không tự thêm một lời thú tội hoặc xác nhận Dạ Lan đã điều tra/vật lộn tâm lý ra sao** khi chưa có cảnh do tác giả duyệt.
 5. **Tương quan 2 tổ chức:** Không tự nói Vô Danh Các và Quy Nguyên Lâu là đồng minh hay thù địch truyền kiếp. Việc Dạ Thiên đến gọi người về **không tự động đồng nghĩa đã có chiến tranh**.
