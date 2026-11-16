@@ -1,6 +1,6 @@
 # Sườn chương 2 — Dạ Lan Từ
 
-**Trạng thái: ĐANG THẢO LUẬN — CHƯA VIẾT THÀNH CHƯƠNG / CHƯA DUYỆT.**
+**Trạng thái: SƯỜN ĐÃ CHỐT — CHƯƠNG 2 ĐÃ DUYỆT (16/11/2026).**
 
 > Tài liệu dựng cảnh theo những chi tiết Linh Linh cung cấp. Chỉ các ý được ghi **ĐÃ CHỐT** mới là canon; cách chuyển cảnh, lời thoại bổ sung và tình tiết chưa bàn không được mặc nhiên coi là canon.
 
@@ -46,6 +46,6 @@
 
 - Khoảng cách thời gian cụ thể từ cảnh thư phòng tới lúc Cảnh Duy tra ra Đại Mai và trình tự báo tin.
 - Chi tiết nhận dạng/ghi tên chủ chiếc trâm trong hồ sơ, cũng như số phận gia đình Đại Mai.
-- Lời thoại, bối cảnh và câu văn kết chương cụ thể; toàn bộ chương vẫn đang lập sườn, chưa viết chính thức.
+- Các ghi chú trên là lịch sử thiết kế trước khi bản chương 2 được duyệt; nội dung chính thức xem tại `chuong/Chuong_02.md`.
 
-**Quy tắc:** Không viết hoặc ghi đè thành chương chính thức trước khi Linh Linh duyệt sườn.
+**Quy tắc sau khi duyệt:** Không sửa nội dung `chuong/Chuong_02.md` nếu chưa được Linh Linh yêu cầu.
