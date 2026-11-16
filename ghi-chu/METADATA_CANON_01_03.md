@@ -150,3 +150,8 @@ Bản Google Docs được tìm thấy:
 - Khi phần canon mới khác hồ sơ cũ, đã **đánh dấu bất nhất** thay vì tự sửa chương được duyệt chưa?
 
 _Mục đích tài liệu: chống mất dữ kiện khi chuyển cuộc trò chuyện, không tự động phê duyệt chương 3 hay sửa chương cũ._
+
+## Bổ sung 17/11/2026 — Cảm giác an toàn, tiếng gọi trong giấc ngủ
+
+- **TÁC GIẢ XÁC NHẬN VỀ TÂM LÝ:** Tại **Mãn Nguyệt Đường**, trong vòng tay **người nàng yêu nhất, Tạ Cảnh Duy**, Dạ Lan được an toàn và không còn lo lắng hay phòng bị như lúc thức trước người ngoài. Sự buông lỏng ấy giải thích vì sao lớp vỏ lạnh lùng có thể tự nhiên rơi xuống lúc nàng ngủ; không có nghĩa nàng cố tình bộc lộ tình yêu hoặc thân phận khi tỉnh.
+- **TÌNH TIẾT ĐỀ XUẤT, CHƯA CHỐT VÀO CHƯƠNG 3:** Cảnh Duy đang ôm Dạ Lan ngủ, bất giác gọi “Tiểu Linh”; nàng vô thức đáp “Duy ca ca”. Nếu dùng, đây là manh mối cực mạnh khiến chàng nghi ngờ, **chưa mặc nhiên xác nhận chàng đã biết chắc nàng là Chu Tiểu Linh**. Chưa tự thêm tình tiết này vào văn bản chương.
