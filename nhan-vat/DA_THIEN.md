@@ -29,11 +29,14 @@
 - **Dạ Lan biết rất rõ chàng yêu nàng.** Thỉnh thoảng **khi say, Dạ Thiên từng hôn Dạ Lan**; tác giả chưa xác định chi tiết từng lần, phản ứng cụ thể hay sự đồng thuận tại các thời điểm ấy. **Việc đã hôn không có nghĩa nàng cho phép hắn tiến xa/vượt giới hạn**. Không dùng rượu say làm lý do mặc nhiên coi hành vi được đồng ý.
 
 ## Đầu chương 3 — ĐÃ CHỐT MỤC TIÊU, CHƯA CHỐT CẢNH
+- **Tình báo chưa nắm:** Dạ Thiên **không biết Dạ Lan bí mật điều hành Mãn Nguyệt Đường**, dù hai người gắn bó mười lăm năm. Ngược lại Tạ Cảnh Duy đã biết nàng đứng sau tửu lâu từ trước khi gặp mặt; đó là lợi thế tình báo của Cảnh Duy. Dạ Thiên cũng chưa biết hôn ước Chu Tiểu Linh – Cảnh Duy.
+- **Ưu tiên khẩn cấp:** Dạ Thiên **quyết tâm phải đến đón Dạ Lan trước các nhân sự khác của Quy Nguyên Lâu** để tránh nàng bị người khác áp giải và trừng phạt không nương tay. Đây là **mục tiêu**, chưa chốt chàng có thành công.
+- **Sẽ có giao chiến trong chương 3**, nhưng **chưa xác định cặp đối thủ, ngòi nổ, kết quả hoặc thương tích**; không tự mặc định chàng đánh Tạ Cảnh Duy.
 - Sau **năm ngày** Dạ Lan dưỡng thương tại Vô Danh Các, Dạ Thiên đến nơi để **đưa nàng về Quy Nguyên Lâu chịu hỏi tội** vì đã giết Tống Hoài Lễ thay vì bắt sống theo lệnh.
 - Đồng thời chàng **muốn bảo vệ nàng**: chủ động đến thay vì để người khác không nương tay áp giải.
 - Quy Nguyên Lâu có hình phạt **tra tấn**; Dạ Lan **không định trở về**, không sợ hình phạt và có kế hoạch riêng.
 - Dạ Thiên **không biết** Dạ Lan là **Chu Tiểu Linh**; thân thế thật chỉ **Dạ Hành** nắm rõ. Không suy đoán Dạ Thiên đã điều tra ra.
-- Cách Dạ Thiên đối diện **Tạ Cảnh Duy**, phản ứng trước quyết định ở lại của Dạ Lan, lời thoại và hành động cụ thể **chưa chốt**.
+- Cách Dạ Thiên đối diện **Tạ Cảnh Duy**, phản ứng trước việc Dạ Lan **không muốn ở lại Vô Danh Các cũng không muốn về chịu phạt**, lời thoại và hành động cụ thể **chưa chốt**.
 
 ## Không được tự suy diễn
 - Không tự xác quyết Dạ Thiên là phản diện, là tình địch hằn học, hay bất tài vì không cứu nổi sư muội ngày trước.
