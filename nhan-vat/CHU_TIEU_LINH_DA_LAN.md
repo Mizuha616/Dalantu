@@ -44,6 +44,12 @@
 - **Khi say rượu, nàng rất táo bạo**; sự chủ động và bản lĩnh vẫn là của nàng, không biến thành cô nương ngượng ngập, ríu rít đấu khẩu hay ngoan ngoãn nghe lời. Đêm uống rượu nàng **vừa cười vừa khóc** vì tâm sự sâu nặng.
 - Tình huống **nàng mời Các chủ vào phòng khi đang ngâm mình** là ý đang thảo luận; **chưa chốt** lời thoại, việc chàng có vào hay không và khoảng cách giữa họ. Rượu say không mặc nhiên cho phép vượt quá sự đồng thuận hoặc ranh giới của nàng.
 
+## Hai mặt trong cách biểu lộ tình yêu — ĐÃ CHỐT 17/11/2026
+- **Khi tỉnh**, Dạ Lan **không chủ động hôn hoặc công khai quyến rũ Tạ Cảnh Duy**, dù thật lòng yêu chàng. Nàng luôn che giấu tình cảm và thân phận, giữ vẻ lạnh lùng, xa cách.
+- **Khi say**, sự kiềm chế lơi đi: nàng **ít lời nhưng táo bạo**, có thể chủ động quyến rũ/hôn Các chủ; điều này khác hẳn cách nàng cư xử khi tỉnh. Không mô tả nàng say thành người nhiều lời, nhút nhát hay yếu đuối.
+- **Không** giả định ngày hôm sau nàng sẽ chủ động xác nhận tình cảm, đòi hôn lại hoặc tiếp tục theo đuổi Các chủ. Cách phản ứng sau khi tỉnh và cảnh thân mật cụ thể **chưa chốt**.
+- Vẫn bảo đảm quyền quyết định, ranh giới riêng tư và sự đồng thuận; không tự coi việc say là cho phép mọi hành động thân mật.
+
 ## Ngôn hành khi say — ĐÃ CHỐT 17/11/2026
 - Dạ Lan **ít lời, lạnh lùng và bá đạo** ngay cả khi có rượu; **khi say lại rất bạo, táo bạo trong hành động**, không biến thành người nói nhiều, đấu khẩu dai dẳng hay ngượng ngùng trẻ con.
 - Trong cảnh tối ở Mãn Nguyệt Đường, lúc Các chủ nhắc uống thuốc, tác giả gợi ý nàng có thể chỉ nói đúng một chữ **“Cút”** rồi **tiếp tục uống rượu**, không thèm đôi co. Đây là **phương án thoại đang thử**, chưa phải câu văn chính thức của chương 3.
