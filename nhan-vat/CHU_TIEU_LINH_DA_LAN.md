@@ -35,9 +35,9 @@
 
 ## Nội tâm bị kìm nén và đêm ở Mãn Nguyệt Đường — ĐÃ CHỐT 17/11/2026
 - Trong **năm ngày dưỡng thương ở Vô Danh Các**, Dạ Lan **đóng vai lạnh lùng bình thản trước Tạ Cảnh Duy**; đó là lớp vỏ để giấu đau đớn và tình cảm, **không phải nàng vô cảm**. Giữ nhất quán với việc nàng không để lộ ánh mắt yêu thương sau lúc cận tử ở chương 1.
-- **Từ khi thấy lại Cảnh Duy cho đến lúc trông thấy di vật của Đại Mai**, nàng đã **muốn khóc**, song **không khóc được**. Vẻ cứng rắn không xóa nỗi buồn, sự mất mát hoặc khát khao được sống cho bản thân.
-- **Đêm chương 3 ở Mãn Nguyệt Đường:** Sau khi Cảnh Duy **rời đi thực sự**, Dạ Lan **không đuổi theo**. Nàng có tâm sự, **muốn uống rượu để quên sầu**, **tự gặm nhấm nỗi đau trong im lặng**, không bật khóc. Sự trầm mặc đêm ấy mang nỗi đau về **15 năm bị tước đoạt quyền sống theo ý mình**, không chỉ là uống rượu thư giãn sau màn trốn đi.
-- **Không** chuyển cảnh thành đùa vui, theo đuổi Các chủ, đối đáp nhiều lời, hoặc tự gán một cơn khóc giải tỏa. Chưa chốt độc thoại/nội dung diễn đạt cụ thể trong chương.
+- **Từ khi thấy lại Cảnh Duy cho đến lúc trông thấy di vật của Đại Mai**, Dạ Lan đã **muốn khóc** nhưng cố giấu cảm xúc trước mặt chàng trong suốt năm ngày; **không phải nàng mất khả năng khóc**.
+- **Đêm chương 3 ở Mãn Nguyệt Đường:** Sau khi Cảnh Duy **rời đi thực sự**, Dạ Lan **không đuổi theo**. Nàng uống rượu **cho quên sầu**, tự gặm nhấm nỗi đau về mười lăm năm bị tước quyền sống cho chính mình. **Nước mắt cứ rơi; nàng vừa cười vừa khóc, càng say lại càng cười**, nhưng **không sướt mướt, không than vãn nhiều lời**. Tiếng cười là sắc thái đau buồn, không có nghĩa nàng thanh thản hay vui vẻ.
+- **Không** chuyển cảnh thành nàng vui vẻ ăn mừng trốn thoát, chạy theo Các chủ hay đấu khẩu dài dòng; cũng **không** viết nàng không thể khóc hoặc kiềm chế được mọi giọt nước mắt. Chưa chốt độc thoại/lời văn cụ thể của chương.
 
 ## Ngôn hành khi say — ĐÃ CHỐT 17/11/2026
 - Dạ Lan **ít lời, lạnh lùng và bá đạo** ngay cả khi có rượu; **khi say lại rất bạo, táo bạo trong hành động**, không biến thành người nói nhiều, đấu khẩu dai dẳng hay ngượng ngùng trẻ con.
