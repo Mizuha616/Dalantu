@@ -12,7 +12,7 @@
 ## Phân biệt với các tổ chức khác
 - **Quy Nguyên Lâu:** tổ chức sát thủ đã bắt cóc, đào tạo và ép Dạ Lan nhận nhiệm vụ. Mãn Nguyệt Đường là **cơ nghiệp riêng của Dạ Lan**, không tự gộp thành tài sản của Quy Nguyên Lâu.
 - **Vô Danh Các:** tổ chức chuyên thu thập/mua bán tình báo do **Tạ Cảnh Duy** đứng đầu. Mãn Nguyệt Đường có thể có chức năng thu thập tin tức tương tự ở một khía cạnh, nhưng **vẫn là chuỗi tửu lâu kinh doanh hợp pháp**, không tự biến thành chi nhánh Vô Danh Các.
-- **Dạ Thiên:** chưa rõ mức độ hắn biết Mãn Nguyệt Đường và quyền điều hành thực tế của Dạ Lan.
+- **Dạ Thiên — ĐÃ CHỐT:** **Không biết** Dạ Lan **bí mật đứng sau và điều hành Mãn Nguyệt Đường**, bất chấp mười lăm năm gắn bó cùng nàng. Đây là một **bất lợi thông tin** khi so với Tạ Cảnh Duy, người đã biết bí mật này.
 - **Tạ Cảnh Duy — ĐÃ CHỐT:** Vô Danh Các **đã điều tra và nắm được Dạ Lan chính là người đứng sau Mãn Nguyệt Đường ngay từ trước khi Tạ Cảnh Duy biết dung mạo Dạ Lan**. Sau khi gặp nàng, nghe nàng nói muốn rời Vô Danh Các, **Cảnh Duy lập tức biết/đoán đúng nàng sẽ đến Mãn Nguyệt Đường**. Đây là năng lực tình báo sẵn có của chàng, không phải việc nàng thú nhận chủ quyền tửu lâu. **Chàng vẫn chưa biết Dạ Lan chính là Chu Tiểu Linh.** Chưa xác lập chàng biết cụ thể chi nhánh/địa chỉ nào.
 
 ## Chưa chốt — KHÔNG tự sáng tác
