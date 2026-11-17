@@ -4,7 +4,7 @@
 
 ## Vai trò và thân phận — ĐÃ CHỐT
 - Nam phụ, một sát thủ thuộc **Quy Nguyên Lâu**, **đệ tử thứ mười hai** trong 13 đệ tử ruột của **Dạ Hành**.
-- Chữ **Dạ** trong danh xưng chỉ nhánh sư phụ Dạ Hành, **không phải họ thật được xác nhận**.
+- Chữ **Dạ** trong danh xưng chỉ nhánh sư phụ Dạ Hành, **không phải họ thật được xác nhận**. **QUY TẮC XƯNG HÔ (tác giả nhắc 17/11/2026):** **Dạ Thiên** là một mật danh hoàn chỉnh; tuyệt đối không rút thành **“Dạ công tử”** như thể *Dạ* là họ. Tạ Cảnh Duy có thể gọi **“Dạ Thiên công tử”** khi giữ lễ hoặc **“Dạ Thiên”** khi đối đầu. Áp dụng cho toàn bộ thoại chương 3.
 - **Ngoại hình:** Rất đẹp trai. Chi tiết dung mạo, chiều cao, trang phục, độ tuổi chính xác **chưa chốt**.
 - Đã là đệ tử thứ mười hai khi **Chu Tiểu Linh tám tuổi** được Dạ Hành bắt cóc đưa đến; lúc Dạ Thiên bảo vệ Dạ Lan và phản kháng tổ chức, **chàng cũng còn nhỏ**. Không tự ấn định tuổi cụ thể.
 
