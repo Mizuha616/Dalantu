@@ -13,3 +13,4 @@ Khu vực lưu bản nháp, bản đã duyệt và lịch sử chỉnh sửa cá
 - `Chuong_02.md` — **ĐÃ DUYỆT** (16/11/2026), *Trâm mai*.
 - `Chuong_03.md` — **ĐÃ DUYỆT** (17/11/2026), *Tiếng gọi*.
 - `Chuong_04.md` — **ĐÃ DUYỆT** (18/11/2026), *Hồng sa*.
+- `Chuong_05.md` — **ĐÃ DUYỆT** (18/11/2026), *Ẩm giấm*.
