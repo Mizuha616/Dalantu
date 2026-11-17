@@ -2,17 +2,17 @@
 project: "Dạ Lan Từ"
 record_type: "continuity_metadata"
 version: "2026-11-17"
-scope: "canon chương 1–2 và thiết lập chương 3 đang thảo luận"
+scope: "canon chương 1–3 chính thức và ghi chú kế hoạch lịch sử"
 repository: "Mizuha616/Dalantu"
 chapter_1_status: "đã duyệt"
 chapter_2_status: "đã duyệt"
-chapter_3_status: "chưa viết; đang thảo luận"
+chapter_3_status: "đã duyệt 17/11/2026 — Tiếng gọi"
 authority: "Linh Linh duyệt canon; nội dung chương đã duyệt là văn bản chính thức"
 ---
 
 # METADATA CANON — Dạ Lan Từ, chương 1–3
 
-> **ĐỌC TRƯỚC KHI THẢO LUẬN/VIẾT CHƯƠNG 3.** Đây là chỉ mục chống nhầm lẫn, lập từ hai chương chính thức, các hồ sơ canon hiện có và những điều tác giả vừa xác nhận trong cuộc thảo luận chương 3 (17/11/2026). Không thay thế văn bản truyện. Không biến suy đoán thành sự thật.
+> **CHƯƠNG 3 ĐÃ ĐƯỢC TÁC GIẢ DUYỆT 17/11/2026:** Bản chính thức nằm ở `chuong/Chuong_03.md` — **Tiếng gọi**. Đây là chỉ mục chống nhầm lẫn; các mục có chữ “chưa viết/đang thảo luận” ở phía dưới là **ghi chú lịch sử trước khi bản chương 3 được duyệt**, không phủ định văn bản chính thức. Khi có khác biệt, ưu tiên bản chương đã duyệt. Không tự sửa chương. Không biến suy đoán thành sự thật.
 >
 > **Trạng thái sử dụng:** `[CHÍNH THỨC]` = đã được viết và duyệt trong chương; `[TÁC GIẢ CHỐT]` = tác giả xác nhận nhưng có thể chưa xuất hiện trong truyện; `[CHƯA RÕ]` = không được tự bịa; `[CẦN ĐỐI CHIẾU]` = lời xác nhận mới có khả năng xung đột với văn bản cũ, giữ nguyên chương cho đến khi tác giả quyết định sửa.
 >
@@ -22,13 +22,15 @@ authority: "Linh Linh duyệt canon; nội dung chương đã duyệt là văn b
 
 1. `chuong/Chuong_01.md` — **Chương 1: Tái ngộ**, bản chính thức 16/11/2026.
 2. `chuong/Chuong_02.md` — **Chương 2: Trâm mai**, bản chính thức 16/11/2026.
-3. `cot-truyen/SUON_CHUONG_02.md`, `cot-truyen/TRUC_TRUYEN.md`, `cot-truyen/MOI_QUAN_HE.md`.
-4. `nhan-vat/CHU_TIEU_LINH_DA_LAN.md`, `nhan-vat/TA_CANH_DUY.md`, `nhan-vat/DA_HANH.md`, `boi-canh/QUY_NGUYEN_LAU.md`, `boi-canh/VO_DANH_CAC.md`, `lich-su/NIEN_BIEU.md`.
-5. Các xác nhận mới **trong buổi thảo luận chương 3** được gom ở mục 4 và 5 dưới đây; một số hồ sơ cũ chưa kịp cập nhật, nên không được phủ định chúng chỉ vì hồ sơ cũ ghi “chưa chốt”.
+3. `chuong/Chuong_03.md` — **Chương 3: Tiếng gọi**, bản chính thức 17/11/2026, đã sửa “Ta không sao” thành **ba chữ** và xưng hô **Dạ Thiên công tử**.
+4. `cot-truyen/SUON_CHUONG_02.md`, `cot-truyen/TRUC_TRUYEN.md`, `cot-truyen/MOI_QUAN_HE.md`.
+5. `nhan-vat/CHU_TIEU_LINH_DA_LAN.md`, `nhan-vat/TA_CANH_DUY.md`, `nhan-vat/DA_HANH.md`, `boi-canh/QUY_NGUYEN_LAU.md`, `boi-canh/VO_DANH_CAC.md`, `lich-su/NIEN_BIEU.md`.
+6. Các xác nhận mới **trong buổi thảo luận chương 3** được gom ở mục 4 và 5 dưới đây; một số hồ sơ cũ chưa kịp cập nhật, nên không được phủ định chúng chỉ vì hồ sơ cũ ghi “chưa chốt”.
 
-Bản Google Docs được tìm thấy:
+Bản Google Docs chính thức:
 - Chương 1: https://docs.google.com/document/d/1328QuEREMrQypBz4TvULHtMdjDttlvfRaXVHEWgYJCE/edit
 - Chương 2: https://docs.google.com/document/d/1uw5nOsMaMhqCavsf2VTCTvKmZq3eoDhGd8gNKsCPwOw/edit
+- Chương 3: https://docs.google.com/document/d/1bZtg9oUghIpeoZUjucRoSMgl8Qn5Fu0nAPUZ7prk7eQ/edit
 
 ## 2. Các mốc nền tảng [TÁC GIẢ CHỐT / CHÍNH THỨC]
 
@@ -77,7 +79,9 @@ Bản Google Docs được tìm thấy:
 - **QUAN HỆ CẤP TRÊN–CẤP DƯỚI, TÁC GIẢ CHỐT:** Dạ Lan **không tin, không sợ Dạ Hành**; đối với ông vẫn **có một phần kính trọng nhưng không nhiều**. Tác giả hình dung mức độ phục tùng mệnh lệnh của nàng chỉ **khoảng 50%** (mô tả tính cách, không phải chỉ số nhiệm vụ máy móc), trong khi **tỷ lệ hoàn thành nhiệm vụ rất cao**. Dạ Hành đã rèn nàng thành người có thể sẵn sàng chết vì nhiệm vụ; nếu chính ông ta truy sát, nàng cũng sẵn sàng đấu một trận sinh tử, không cầu xin hay tự động cúi đầu. **Đây là tình huống giả định, chưa chốt Dạ Hành sẽ truy sát nàng**. Không đồng nhất tôn trọng ít với trung thành tuyệt đối, cũng không suy diễn nàng luôn cố tình làm hỏng nhiệm vụ.
 - Việc Dạ Hành mang Tiểu Linh khỏi vụ diệt môn có mục đích sâu xa **chưa rõ**. Không gọi đó là ân cứu mạng vô điều kiện hoặc khẳng định ông ta có liên hệ với thủ phạm. Việc không biết mục đích ban đầu không làm nhẹ đi các hành vi bắt cóc và cưỡng ép đã chốt.
 
-## 5. Cốt truyện chương 3 đang thảo luận [TÁC GIẢ CHỐT, CHƯA VIẾT]
+## 5. Ghi chú quá trình dựng chương 3 [LỊCH SỬ THẢO LUẬN — CHƯƠNG ĐÃ DUYỆT]
+
+**Các dòng phía dưới được lưu lại để hiểu ý đồ tác giả trước khi viết. Kết quả cuối cùng và lời thoại chính thức xem `chuong/Chuong_03.md` (đã duyệt).**
 
 - Mở ở thời điểm tác giả đặt ra là **sau 5 ngày Dạ Lan ở Vô Danh Các dưỡng thương**; người của Quy Nguyên Lâu tìm đến. **Niên biểu hợp lệ đã được tác giả xác nhận:** quãng “vài ngày” ở chương 2 có thể là **3 ngày**, cộng **2 ngày sau** cảnh trâm = **5 ngày**; không còn xung đột mốc thời gian cần xử lý.
 - Nhân vật ra mặt: **Dạ Thiên**, sát thủ sư huynh si tình, đến với **hai động cơ song song**: (a) thi hành lệnh đưa Dạ Lan về Quy Nguyên Lâu hỏi tội; (b) đích thân đến để bảo vệ nàng, tránh kẻ khác dùng vũ lực/không nương tay.
@@ -102,7 +106,7 @@ Bản Google Docs được tìm thấy:
 - **ĐÃ CHỐT RÕ 17/11/2026 — DẠ LAN KHÔNG CHỌN CẢ HAI NƠI:** Dạ Lan **không muốn ở lại Vô Danh Các**, **cũng không muốn trở về Quy Nguyên Lâu chịu phạt**. Nàng không sợ hình phạt; muốn ép bắt nàng đi phải bước qua xác nàng. Nàng **đã có một kế hoạch/mục tiêu khác của chính mình**, liên quan vụ Tống Hoài Lễ và La Trọng Sơn. **Chưa biết mục tiêu cụ thể**, tuyệt đối không tự thay bằng “truy tìm La Trọng Sơn còn sống”. **KHÔNG** viết nàng vì yêu Cảnh Duy mà muốn lưu trú vô thời hạn ở Vô Danh Các; sự chăm sóc và cảm giác dễ chịu ở đây không thay thế lựa chọn độc lập của nàng.
 - Tạ Cảnh Duy có thể muốn bảo hộ Dạ Lan và chịu thiệt về mặt tổ chức (“làm ăn lỗ”), nhưng **không được tự biến mong muốn của chàng thành quyết định của nàng ở lại**. Cách hỗ trợ khi nàng muốn rời đi, diễn biến đối đầu, điều kiện, lời thoại và mức độ cam kết **vẫn đang thảo luận, chưa phải cảnh canon**.
 - Tạ Cảnh Duy **chưa biết Dạ Lan là Chu Tiểu Linh** ở thời điểm này. Quyết định bảo vệ nàng cần tương thích với **nghi vấn có cơ sở, lòng trắc ẩn và sự tôn trọng lựa chọn của nàng**, không viết lời thoại kiểu chàng đã xác nhận thân phận.
-- **Chương 3 chưa được cho phép viết**; chỉ tiếp tục cùng tác giả dựng tình tiết cho đến khi có yêu cầu rõ.
+- **CẬP NHẬT 17/11/2026:** Tác giả đã yêu cầu viết và sau khi sửa hai lỗi xưng hô/đếm chữ đã **DUYỆT chương 3**. Bản chính thức: `chuong/Chuong_03.md`.
 
 ## 6. Bảng tri thức — thời điểm cuối chương 2 / đầu chương 3
 
@@ -160,3 +164,10 @@ _Mục đích tài liệu: chống mất dữ kiện khi chuyển cuộc trò ch
 - **PHẢN ỨNG DẠ LAN BUỔI SÁNG — TÁC GIẢ XÁC NHẬN 17/11/2026:** Nếu dùng nhịp đêm ngủ và lời gọi “Duy ca ca”, sáng hôm sau Cảnh Duy **có thể ôm, níu giữ nàng, gọi “Linh Linh”**. Dạ Lan, vốn **vô pháp vô thiên**, không hoảng loạn, **không phủ nhận cũng không thừa nhận** thân phận khi bị chàng gọi tên cũ; nàng chỉ đáp đúng câu: **“Tạ các chủ nên về rồi”**. Sự im lặng là cách nàng giữ quyền quyết định lúc nào tiết lộ, **không được tự diễn giải là nàng đã nhận thân hoặc phủ nhận thân phận**. Cử chỉ và lời thoại khác, tình tiết qua đêm và cách Cảnh Duy phản ứng tiếp vẫn đang dựng cảnh; **chưa có chương 3 được phê duyệt**.
 
 - **HƯỚNG PHÁT TRIỂN CẢNH DUY SAU LỜI GỌI — TÁC GIẢ CHỐT 17/11/2026:** Nếu cảnh nàng đáp “Duy ca ca” được đưa vào chương 3, với các dấu hiệu cộng dồn, **Tạ Cảnh Duy gần như chắc chắn (~90% theo tác giả) Dạ Lan chính là hôn thê Chu Tiểu Linh**, nhưng **chưa xác minh tuyệt đối**. Chàng sẽ có vô vàn câu hỏi, nhưng **không ép nàng nói, không truy vấn trực diện khi nàng không muốn**. Thay vào đó, chàng **âm thầm điều tra lại huyết án Chu gia năm xưa** và những năm tháng nàng mất tích. Chàng cũng có **thêm lý do chủ động, kiên trì đến Mãn Nguyệt Đường gặp nàng**, có thể mặt dày một cách duyên dáng nhưng tôn trọng quyết định và ranh giới của nàng. Phân biệt với trạng thái **trước tiếng gọi**: lúc ấy chàng chỉ nghi ngờ. Không tự viết kết luận điều tra hoặc thủ phạm khi chưa chốt. Tình tiết đêm ngủ/sáng hôm sau chưa phải chương 3 hoàn chỉnh được duyệt.
+
+## 10. Mốc duyệt chương 3 — 17/11/2026
+
+- Tác giả phê duyệt **Chương 3 — Tiếng gọi** sau hai hiệu đính: **“Ta không sao” = ba chữ**; **“Dạ Thiên” là mật danh nguyên vẹn, không xưng “Dạ công tử”, dùng “Dạ Thiên công tử”**.
+- Bản truyện chính thức: `chuong/Chuong_03.md`.
+- Bản Google Docs tại thư mục Drive **Dạ Lan Từ**: https://docs.google.com/document/d/1bZtg9oUghIpeoZUjucRoSMgl8Qn5Fu0nAPUZ7prk7eQ/edit
+- Các suy đoán và phương án cũ nếu xung đột với chương đã duyệt **không còn hiệu lực**; ưu tiên nội dung chương 3.
