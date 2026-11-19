@@ -16,7 +16,7 @@ Dạ Lan ngồi bên cửa sổ, ngón tay khẽ miết lên thành chén.
 
 Tiêu Dục.
 
-Tính từ ngày nàng đặt chân đến Diệp Quốc, đã hơn một tháng trôi qua mà vẫn không nhận được bất cứ tin tức nào của Tạ Cảnh Duy.
+Tính từ ngày nàng đặt chân đến Diệp Quốc, đã hơn hai tháng trôi qua mà vẫn không nhận được bất cứ tin tức nào của Tạ Cảnh Duy.
 
 Theo lời hẹn, đáng lẽ chàng đã phải đến tìm nàng từ lâu. Với tính cách của Tạ Cảnh Duy, cho dù có việc đột xuất không thể tới, chàng cũng sẽ tìm cách gửi mật thư.
 
@@ -206,7 +206,7 @@ Dạ Lan đặt hai bản ghi chép cạnh nhau, đối chiếu ngày tháng.
 
 Không sai.
 
-Suốt gần hai tháng qua, nàng đã nghi ngờ nhầm người.
+Suốt thời gian qua, nàng đã nghi ngờ nhầm người.
 
 — Ngươi tra chuyện này từ bao giờ?
 
