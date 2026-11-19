@@ -18,3 +18,29 @@
 - Tuổi và thời điểm Cảnh Duy nghe tin Tiểu Linh đã chết.
 - **Đã chốt:** khoảng **15 năm** từ biến cố diệt môn đến tái ngộ (không tự đặt năm lịch).
 - Thời điểm và nguyên nhân lời thề.
+
+## Niên biểu Tiêu Hằng – Dạ Lan và Tiểu An (chốt 19/11/2026)
+
+Tuổi thai trong niên biểu truyện tính từ thời điểm thụ thai; không tự đặt năm lịch. Các tháng theo lịch trong truyện, không có tháng nhuận trong giai đoạn này.
+
+| Thời điểm | Sự kiện | Tuổi thai |
+|---|---|---|
+| Đầu tháng 7, đầu thu | Dạ Lan theo Tiêu Hằng sang Diệp Quốc | — |
+| Đầu tháng 8 | Đêm đầu tiên của hai người; thụ thai Tiểu An | Mốc thụ thai |
+| Đầu tháng 9 | Dạ Lan biết mình có thai | 1 tháng |
+| Cuối tháng 9 | Đại hôn | Gần 2 tháng |
+| Đầu tháng 10 | Dạ Lan bị bắt cóc, 5 ngày sau hôn lễ | 2 tháng |
+| Giữa tháng 10 | Tuyết đầu mùa; mở đầu chương 15, may tất và mũ cho con | Khoảng 2,5 tháng |
+| Cuối tháng 10 | Dạ Lan tặng Tiêu Hằng cổ áo lông hồ ly lót bông | Gần 3 tháng |
+| Đầu tháng 11 | Thái y xác nhận thai tượng ổn định, Dạ Lan bình phục; phu thê hành phòng trở lại | 3 tháng |
+| Nửa cuối tháng 11 | Dạo phố, mua đồ chơi, thưởng mai, vẽ tranh | 3 tháng hơn |
+| Tháng Chạp | Nấu món mùa đông, học may thỏ vải và làm hoành thánh | 4 tháng |
+| Đầu tháng Giêng | Đón Tết, bụng Dạ Lan đã tròn | 5 tháng |
+| Giữa tháng Giêng | Tiêu Hằng lần đầu cảm nhận Tiểu An đạp | Hơn 5 tháng |
+| Cuối tháng Giêng | Tuyết tan, kết thúc chương 15 | Gần 6 tháng |
+| Đầu tháng 2 | | 6 tháng |
+| Đầu tháng 3 | | 7 tháng |
+| Đầu tháng 4 | | 8 tháng |
+| Đầu tháng 5, mùa hạ | Tiểu An chào đời (mốc dự kiến đã chốt, chưa viết) | 9 tháng |
+
+Chương 15 **Nhân Gian Yên Hỏa** là bản đã duyệt, dành trọn cho mùa đông yên bình của đôi phu thê. Chương 16 dự kiến chuyển sang tuyến Tạ Cảnh Duy – Mộng Điệp ở Vân Quốc, bồi đắp tình cảm độc lập của hai người.
